@@ -24,7 +24,7 @@
 - [关于利用乳房进行自慰](nipple/chibusa/chibusa.md)
   - [给予乳房愉悦快感的揉捏方法总结](nipple/chibusa/page-85.md)
   - [B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](nipple/chibusa/page-95.md)
-  - [对乳房进行电击（通电垫责罚）的方法总结]()
+  - [对乳房进行电击（通电垫责罚）的方法总结](nipple/chibusa/page-100.md)
 - [解决乳首开发的烦恼](nipple/nayami/nayami.md)
   - [分离乳首性感和射精感的方法总结](nipple/nayami/page-42.md)
   - [给乳首高潮难以达到者的建议](nipple/nayami/page-39.md)

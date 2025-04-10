@@ -18,7 +18,7 @@
 - [乳首自慰的说明](nipple/chikuni/chikuni.md)
   - [矿泉水瓶+乳首自慰的手法](nipple/chikuni/page-18.md)
   - [在乳首开发中戴着磁针贴进行乳首自慰的方法](nipple/chikuni/page-29.md)
-  - [使用润滑液进行乳首自慰的玩法]()
+  - [使用润滑液进行乳首自慰的玩法](nipple/chikuni/page-32.md)
   - [让乳首和乳晕感到愉悦的爱抚方法总结](nipple/chikuni/page-84.md)
   - [用跳蛋进行愉悦的乳首自慰的方法总结](nipple/chikuni/page-96.md)
 - [关于利用乳房进行自慰](nipple/chibusa/chibusa.md)

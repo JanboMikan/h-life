@@ -41,7 +41,7 @@
   - [男性的女性化是指什么（关于女性荷尔蒙的影响说明）](femorg/risuku/page-a4-14.md)
   - [关于类女性高潮和干性高潮的安全性](femorg/risuku/page-a4-27.md)
   - [持续享受舒适类女性高潮快感时产生的问题总结](femorg/risuku/page-a4-23.md)
-  - [什么是不应该做的危险类女性高潮自慰]()
+  - [【男性向】不可尝试的危险类女性高潮自慰](femorg/risuku/page-a4-43.md)
 - [初学者的类女性高潮入门方法](femorg/nyuumon/nyuumon.md)
   - [体验像女性一样的快感并达到高潮的方法总结]()
   - [如果想体验类女性高潮应该从什么开始](femorg/nyuumon/page-a4-17.md)

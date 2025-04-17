@@ -39,7 +39,7 @@
 - [关于类女性高潮的风险说明](femorg/risuku/risuku.md)
   - [关于类女性高潮的风险和问题](femorg/risuku/page-a4-3.md)
   - [男性的女性化是指什么（关于女性荷尔蒙的影响说明）](femorg/risuku/page-a4-14.md)
-  - [关于类女性高潮和干性高潮的安全性]()
+  - [关于类女性高潮和干性高潮的安全性](femorg/risuku/page-a4-27.md)
   - [持续接受舒服的类女性高潮快感时产生的问题总结]()
   - [什么是不应该做的危险类女性高潮自慰]()
 - [初学者的类女性高潮入门方法](femorg/nyuumon/nyuumon.md)

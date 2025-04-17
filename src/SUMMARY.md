@@ -48,7 +48,7 @@
 - [关于干性性感的开发方法](femorg/dry-seikan/dry-seikan.md)
   - [高效类女性高潮性开发方法总结](femorg/dry-seikan/page-a4-4.md)
   - [类女性高潮可能的性感带种类和开发方法总结](femorg/dry-seikan/page-a4-5.md)
-  - [成长类女性高潮性感带的方法总结]()
+  - [类女性高潮性感带的成长方法总结](femorg/dry-seikan/page-a4-13.md)
   - [短时间内“对想体验干性高潮的人有帮助”的性开发方法]()
 - [类女性高潮性感的说明]()
   - [类女性高潮时发生的现象和感觉的说明]()

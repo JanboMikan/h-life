@@ -7,7 +7,7 @@
 # 乳首
 
 - [乳首开发与乳首高潮的说明](nipple/kaihatsu+iki/kaihatsu+iki.md)
-  - [乳首性敏感带通过刺激开发的方法总结](nipple/kaihatsu+iki/page-149.md)
+  - [乳首性感带通过刺激开发的方法总结](nipple/kaihatsu+iki/page-149.md)
   - [通过乳首自慰达到高潮的基准](nipple/kaihatsu+iki/page-38.md)
   - [通过乳首自慰获得的愉悦快感的说明](nipple/kaihatsu+iki/page-81.md)
   - [乳首开发的冷知识和小贴士](nipple/kaihatsu+iki/page-44.md)

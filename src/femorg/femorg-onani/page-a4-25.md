@@ -21,18 +21,18 @@
 
 此外，关于雌性化的问题，可以参考：
 
-*   [关于雌性高潮的风险和问题](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-3)
-*   [男性的雌性化是什么](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-14)
+*   [关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.md)
+*   [男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.md)
 
 ## 乳首开发
 
 如果想通过乳首自慰获得快感，需要对**乳首进行性开发**。
 
-方法请参考“[推荐的雌性高潮性开发方法总结](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-4)”。
+方法请参考“[推荐的雌性高潮性开发方法总结](/femorg/dry-seikan/page-a4-4.md)”。
 
 如果上述方法不适合您，可以通过搜索“乳首开发 方法”来收集所需的信息。
 
-（顺便说一句，也请参考“[强化雌性高潮性感带的方法总结](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-13)！”）
+（顺便说一句，也请参考“[雌性高潮性感带的成长方法总结](/femorg/dry-seikan/page-a4-13.md)！”）
 
 ## 提高乳首自慰快感的方法
 
@@ -44,9 +44,9 @@
 
 重要事项。……雌性高潮时产生的快感与雄性高潮自慰不同，会因身体状态而发生很大变化。
 
-因此，在开始雌性高潮自慰之前，请参考“[增强雌性性感以进行愉悦自慰的方法总结](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-24)”，以增强性感。
+因此，在开始雌性高潮自慰之前，请参考“[增强雌性高潮性感，享受愉悦自慰的方法总结](/femorg/houhou/page-a4-24.md)”，以增强性感。
 
-（如果不太了解这样做的好处，建议阅读“[在雌性高潮自慰之前增强雌性性感的好处是什么](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-22)”）
+（如果不太了解这样做的好处，建议阅读“[雌性高潮自慰前增强雌性高潮性感的好处](/femorg/info/page-a4-22.md)”）
 
 ### 创建可以集中精力感受快感的环境
 
@@ -114,9 +114,9 @@
 
 如果继续刺激乳首，就会自然而然地达到雌性高潮。
 
-（如果无法通过这种方法达到干性高潮，建议阅读“[给无法顺利『雌性高潮』的人的建议](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-8)”）
+（如果无法通过这种方法达到干性高潮，建议阅读“[给无法顺利“雌性高潮”的人的建议](/femorg/onani-tekunikku/page-a4-8.md)”）
 
-（如果刺激乳首会导致阴茎勃起并射精，并且对此感到困扰，那么也应该查看“[妨碍雌性高潮的射精感问题和对策方法总结](https://web.archive.org/web/20190909090713/http://adlib1.net/ws2/momonavi/page-a4-12)”的信息）
+（如果刺激乳首会导致阴茎勃起并射精，并且对此感到困扰，那么也应该查看“[妨碍雌性高潮的射精感的问题和对策方法总结](/femorg/onani-tekunikku/page-a4-12.md)”的信息）
 
 ## 乳首自慰中提高快感的方法
 

@@ -170,8 +170,8 @@
 
 如果您对雌性高潮自慰感兴趣，
 
-[“推荐的雌性高潮性开发方法总结”](https://web.archive.org/web/20190909101412/http://adlib1.net/ws2/momonavi/page-a4-4)
+[推荐的雌性高潮性开发方法总结](/femorg/dry-seikan/page-a4-4.md)
 
-[“可进行雌性高潮的性感带种类和开发方法总结”](https://web.archive.org/web/20190909101412/http://adlib1.net/ws2/momonavi/page-a4-5)
+[雌性高潮可能的性感带种类与开发方法总结](/femorg/dry-seikan/page-a4-5.md)
 
 也请阅读一下。您会了解雌性高潮性感带的开发方法。

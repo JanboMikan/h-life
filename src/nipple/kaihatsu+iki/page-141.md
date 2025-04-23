@@ -185,7 +185,7 @@
 
 进行性开发后，
 
-- [“宝特瓶＋乳首自慰的手法”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-18)
+- [矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)
 - [“同时责罚会阴和乳首，享受强烈干性高潮的方法总结”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-120)
 - [“理想的乳首自慰流程”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-14)
 

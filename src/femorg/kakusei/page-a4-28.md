@@ -118,7 +118,7 @@
 
 ### 如果不注意，可能会发生雌化
 
-详细内容请参考“**[男性的雌化是什么](https://web.archive.org/web/20190906075242/http://adlib1.net/ws2/momonavi/page-a4-14)** ”。
+详细内容请参考“**[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.md)** ”。
 
 享受雌性高潮的人，也应该稍微注意一下女性荷尔蒙和男性荷尔蒙。
 
@@ -126,6 +126,6 @@
 
 关于开发雌性高潮性感可能产生的风险和缺点，
 
-已总结在“**[关于雌性高潮和干性高潮的安全性](https://web.archive.org/web/20190906075242/http://adlib1.net/ws2/momonavi/page-a4-27)** ”
+已总结在“**[关于雌性高潮和干性高潮的安全性](/femorg/risuku/page-a4-27.md)** ”
 
-“**[关于雌性高潮的风险和问题点](https://web.archive.org/web/20190906075242/http://adlib1.net/ws2/momonavi/page-a4-3)** ”中，感兴趣的人也可以浏览一下。
+“**[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.md)** ”中，感兴趣的人也可以浏览一下。

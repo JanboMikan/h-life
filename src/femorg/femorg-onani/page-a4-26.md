@@ -70,7 +70,7 @@
 
 ## 关于性感觉强化方法
 
-记载在“[**让雌性高潮性感觉更强，进行更愉悦的自慰的方法总结**](https://web.archive.org/web/20190909103935/http://adlib1.net/ws2/momonavi/page-a4-24)”中。
+记载在“[增强雌性高潮性感，享受愉悦自慰的方法总结](/femorg/houhou/page-a4-24.md)”中。
 
 ## 斯彭斯乳腺自慰的方法
 

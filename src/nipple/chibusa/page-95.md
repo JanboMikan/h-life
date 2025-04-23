@@ -185,7 +185,7 @@ B点，稍微有点慢热。
 
 ## 进一步提高快感的方法
 
-- 导入[“强化性感的方法总结”](https://web.archive.org/web/20241205045308/https://adlib1.net/ws2/h-life/page-19)
+- 导入[强化性感的方法总结](/nipple/jyouhou/page-19.md)
 - 每次自慰或做爱时，都玩弄B点
 - 揉捏乳房时，同时刺激B点
 - 在前戏时按摩B点

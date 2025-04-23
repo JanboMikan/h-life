@@ -47,11 +47,11 @@
 
 详细内容总结在以下文章中。
 
-“**[男性的女性化是什么](https://web.archive.org/web/20190816040258/http://adlib1.net/ws2/momonavi/page-a4-14)**”
+“**[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.md)**”
 
-“**[雌性高潮的风险和问题点](https://web.archive.org/web/20190816040258/http://adlib1.net/ws2/momonavi/page-a4-3)**”
+“**[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.md)**”
 
-“**[什么是雌性高潮自慰](https://web.archive.org/web/20190816040258/http://adlib1.net/ws2/momonavi/page-a4-9)**”
+“**[什么是雌性高潮自慰](/femorg/intro/page-a4-9.md)**”
 
 有兴趣的人可以阅读一下。
 

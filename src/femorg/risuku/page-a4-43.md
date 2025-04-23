@@ -144,11 +144,11 @@
 
 ## 关于雌性高潮本身存在的风险
 
-关于“**[雌性高潮的风险和问题点](https://web.archive.org/web/20190909091843/http://adlib1.net/ws2/momonavi/page-a4-3)**”
+关于“**[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.md)**”
 
-关于“**[男性的女性化](https://web.archive.org/web/20190909091843/http://adlib1.net/ws2/momonavi/page-a4-14)**”
+关于“**[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.md)**”
 
-关于“**[雌性高潮和干性高潮的安全性](https://web.archive.org/web/20190909091843/http://adlib1.net/ws2/momonavi/page-a4-27)**”
+关于“**[关于雌性高潮和干性高潮的安全性](/femorg/risuku/page-a4-27.md)**”
 
 等处汇总了信息。
 

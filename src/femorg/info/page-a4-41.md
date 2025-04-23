@@ -169,11 +169,11 @@
 
 ### 眼罩、耳塞
 
-关于“**[用眼罩和耳塞遮断感觉时对雌性高潮的影响](https://web.archive.org/web/20190921135855/http://adlib1.net/ws2/momonavi/page-a4-36)**”中进行了总结。
+关于“**[通过眼罩和耳塞进行感觉剥夺对雌性高潮的影响](/femorg/info/page-a4-36.md)**”中进行了总结。
 
 ### 其他，关于通常的成人用品
 
-记载在“**[能用于舒适的雌性高潮性爱的「成人玩具」等的说明](https://web.archive.org/web/20190921135855/http://adlib1.net/ws2/momonavi/page-a4-37)**”中。
+记载在“**[提升愉悦雌性高潮性爱体验的“成人玩具”等说明](/femorg/info/page-a4-37.md)**”中。
 
 以上。
 

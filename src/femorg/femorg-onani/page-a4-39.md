@@ -6,12 +6,12 @@
 
 如果对雌性高潮的感觉和快感感兴趣，请阅读以下文章！
 
-*   **[关于雌性高潮时发生的现象和感觉的说明](https://web.archive.org/web/20180210090242/http://adlib1.net/ws2/momonavi/page-a4-6)**
-*   **[雌性高潮自慰中令人愉悦的感觉的说明总结](https://web.archive.org/web/20180210090242/http://adlib1.net/ws2/momonavi/page-a4-16)**
+*   **[雌性高潮时发生的现象和感觉的说明](/femorg/femorg-seikan/page-a4-6.md)**
+*   **[雌性高潮自慰中快感体验总结](/femorg/femorg-seikan/page-a4-16.md)**
 
 ## 雌性高潮的爆发是什么
 
-关于非自愿发生的雌性高潮，请参考“**[关于自发发生的『雌性高潮爆发』的原因和对策方法总结](https://web.archive.org/web/20180210090242/http://adlib1.net/ws2/momonavi/page-a4-38)**”。
+关于非自愿发生的雌性高潮，请参考“**[擅自发生的「雌性高潮爆发」的原因与对策总结](/femorg/kakusei/page-a4-38.md)**”。
 
 以下是关于有意引发的“雌性高潮爆发”的说明。
 
@@ -119,7 +119,7 @@
 
 接下来，在开始雌性高潮自慰之前，
 
-“**[关于增强雌性性感，进行令人愉悦的自慰的方法总结](https://web.archive.org/web/20180210090242/http://adlib1.net/ws2/momonavi/page-a4-24)**”
+“**[增强雌性高潮性感，享受愉悦自慰的方法总结](/femorg/houhou/page-a4-24.md)**”
 
 充分激发雌性性感。
 
@@ -199,6 +199,6 @@
 
 如果进行自我控制，就不会有太大的问题，但是如果沉溺于雌性高潮的快感中，过度享受，
 
-“**[关于自发发生的『雌性高潮爆发』的原因和对策方法总结](https://web.archive.org/web/20180210090242/http://adlib1.net/ws2/momonavi/page-a4-38)**”
+“**[擅自发生的「雌性高潮爆发」的原因与对策总结](/femorg/kakusei/page-a4-38.md)**”
 
 文章中写到的问题会**频繁发生**，所以享受强烈快感类型的雌性高潮自慰，最好偶尔享受一下。

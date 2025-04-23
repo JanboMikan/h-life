@@ -8,7 +8,7 @@
 
 因此，首先要掌握雌性高潮的缺点和问题点。
 
-请确认[“关于雌性高潮的风险和问题点”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-3)和[“男性的女性化是指”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-14)。
+请确认[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.md)和[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.md)。
 
 阅览后，**如果可以接受问题点**，那么可以进行雌性高潮性感的开发。
 
@@ -18,7 +18,7 @@
 
 - [什么是雌性高潮（雌性高潮的说明）](/femorg/intro/page-a4-1.md)
 - [“与雌性高潮相关的词语的说明总结”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-11)
-- [“雌性高潮自慰中快感感觉的说明总结”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-16)
+- [雌性高潮自慰中快感体验总结](/femorg/femorg-seikan/page-a4-16.md)
 
 关于雌性高潮，这些知识应该会有所帮助。
 
@@ -52,7 +52,7 @@
 
 性感带的位置容易理解，可以立即玩弄，轻松简单，可以用磁针贴进行高速开发，快感与女性的乳首几乎相同……具有众多优点，所以在掌握各种雌性高潮自慰的风险后，如果没有特别想做的，建议进行乳首开发。
 
-（关于乳首的性开发的内容，记载在[“推荐的雌性高潮性开发方法总结”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-4)中）
+（关于乳首的性开发的内容，记载在[推荐的雌性高潮性开发方法总结](/femorg/dry-seikan/page-a4-4.md)中）
 
 ### 前列腺开发（前列腺自慰）
 
@@ -106,13 +106,13 @@
 
 ## 理解开发雌性高潮性感的方法
 
-关于性开发的内容，总结在[“强化雌性高潮性感带的方法总结”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-13)中。
+关于性开发的内容，总结在[雌性高潮性感带的成长方法总结](/femorg/dry-seikan/page-a4-13.md)中。
 
 掌握性开发的知识后，开发速度会发生很大变化，所以请学习！
 
 ## 其他
 
-也推荐阅览[“给无法顺利进行『雌性高潮』的人的建议”](https://web.archive.org/web/20190905091734/http://adlib1.net/ws2/momonavi/page-a4-8)。
+也推荐阅览[给无法顺利“雌性高潮”的人的建议](/femorg/onani-tekunikku/page-a4-8.md)。
 
 这篇文章中，总结了“更容易进行雌性高潮的方法”，如果还没有体验过雌性高潮，应该会是有用的信息。
 

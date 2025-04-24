@@ -89,10 +89,10 @@
 - [关于雌性高潮的杂学和冷知识等](femorg/zatsugaku/zatsugaku.md)
   - [男性干性高潮和女性干性高潮的区别是什么](femorg/zatsugaku/page-a4-31.md)
   - [因人而异的干性高潮说明总结](femorg/zatsugaku/page-a4-32.md)
-- [关于雌性高潮的闲聊]()
-  - [关于雌性高潮和干性高潮的区别]()
-  - [关于通过女性化调教制造伪娘的方法]()
-  - [伪娘系的AV的演出和实际的雌性高潮快感等的区别是什么]()
+- [关于雌性高潮的闲聊](femorg/zatsudan/zatsudan.md)
+  - [关于雌性高潮和干性高潮的区别](femorg/zatsudan/page-a4-2.md)
+  - [关于通过雌化调教来制造雌性男子的方法](femorg/zatsudan/page-a4-30.md)
+  - [男娘系AV的演出与实际雌性高潮快感等的区别](femorg/zatsudan/page-a4-34.md)
 
 # 干性高潮
 

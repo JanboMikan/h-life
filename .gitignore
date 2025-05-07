@@ -1,2 +1,4 @@
 book
 output.md
+node_modules
+.wrangler

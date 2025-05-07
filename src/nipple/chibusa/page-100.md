@@ -14,7 +14,7 @@
 
 ……另外，通电设备以使用[“ZEUS 掌上电源盒”](https://web.archive.org/web/20241205040701/http://www.e-nls.com/access.php?agency_id=af339507&pcode=XRAC126)为前提。这是一款易于使用且推荐的电击设备。
 
-此外，如果想全身电击并达到高潮，请参考[“快乐通电自慰方法总结”](https://web.archive.org/web/20241205040701/https://adlib1.net/ws2/h-life/page-17)的文章！
+此外，如果想全身电击并达到高潮，请参考[快乐通电自慰方法总结](/dryorg/yarikata/page-17.md)的文章！
 
 ## 什么是乳房电击？
 

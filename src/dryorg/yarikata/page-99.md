@@ -62,7 +62,7 @@
 
 如果只是“今天可以做爱哦～”这种程度的心情，**涂抹后也没有效果**。
 
-请参考“[性感带的说明](https://web.archive.org/web/20190909085556/http://adlib1.net/ws2/h-life/page-74)**”和“[强化性感的方法总结](https://web.archive.org/web/20190909085556/http://adlib1.net/ws2/h-life/page-19)**”，了解“性感带”的知识，就能在一定程度上理解在什么情况下有效。
+请参考“[性感带的说明](https://web.archive.org/web/20190909085556/http://adlib1.net/ws2/h-life/page-74)**”和“[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”，了解“性感带”的知识，就能在一定程度上理解在什么情况下有效。
 
 ３，自律神经的“交感神经”占优势的情况
 
@@ -153,7 +153,7 @@
 - 仰卧在床上，在敏感的乳首上使用。
 - 没有其他刺激。
 - 尝试的媚药是“[闷绝姬](http://www.e-nls.com/access.php?agency_id=af339507&pcode=4009)”。……也许“[姬泣霜](http://www.e-nls.com/access.php?agency_id=af339507&pcode=4008)”或“[痺珠之雫](http://www.e-nls.com/access.php?agency_id=af339507&pcode=7171)”效果更好。因人而异
-- 尽可能强化性感和兴奋（参考“[强化性感的方法总结](https://web.archive.org/web/20190909085556/http://adlib1.net/ws2/h-life/page-19)”）
+- 尽可能强化性感和兴奋（参考“[强化性感的方法总结](/nipple/jyouhou/page-19.md)”）
 
 #### “效果”
 
@@ -333,7 +333,7 @@
 
 如果想刺激涂抹了媚药的部位（皮肤），基本是使用按摩棒、电动按摩器、用指甲轻轻抓挠等。
 
-……此外，还可以与“[用磁针贴达到高潮的方法总结](https://web.archive.org/web/20190909085556/http://adlib1.net/ws2/h-life/page-51)”等结合使用。
+……此外，还可以与“[磁针贴高潮方法总结](/dryorg/yarikata/page-51.md)”等结合使用。
 
 ## 闲话（小知识、杂学、小贴士等）
 

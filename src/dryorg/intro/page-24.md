@@ -95,7 +95,7 @@
 
 “[**乳首开发方法总结**](https://web.archive.org/web/20190909095640/http://adlib1.net/ws2/h-life/page-list-nipple)”
 
-“[**关于催眠自慰的方法**](https://web.archive.org/web/20190909095640/http://adlib1.net/ws2/h-life/page-16)”
+“[催眠自慰的方法](/dryorg/yarikata/page-16.md)”
 
 中的一种（或两种）呢？
 
@@ -137,9 +137,9 @@
 
 ## 干性高潮的技巧
 
-*   [强化性感的方法总结](https://web.archive.org/web/20190909095640/http://adlib1.net/ws2/h-life/page-19) 的导入
+*   [强化性感的方法总结](/nipple/jyouhou/page-19.md) 的导入
 
-性感会随着身体状况和兴奋程度而发生很大变化。喜欢自慰的朋友请记住“[**强化性感的方法总结**](https://web.archive.org/web/20190909095640/http://adlib1.net/ws2/h-life/page-19)”！
+性感会随着身体状况和兴奋程度而发生很大变化。喜欢自慰的朋友请记住“[强化性感的方法总结](/nipple/jyouhou/page-19.md)”！
 
 ## 关于干性高潮的补充
 

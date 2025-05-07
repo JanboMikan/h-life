@@ -10,7 +10,7 @@
 
 ## 关于会阴自慰
 
-关于会阴部的自慰，请参考“**[会阴自慰方法总结](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-119)**”！
+关于会阴部的自慰，请参考“**[会阴自慰方法总结](/dryorg/ein/page-119.md)**”！
 
 ## 关于可用于自慰的塑料瓶
 
@@ -76,7 +76,7 @@
 
 如果没有进行会阴的性开发，**则没有效果**。
 
-请从“**[会阴性感开发方法总结](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-12)**”开始进行性开发。
+请从“**[开发会阴性感的方法总结](/dryorg/ein/page-12.md)**”开始进行性开发。
 
 ### 已开发会阴性感的情况
 
@@ -102,7 +102,7 @@
 
     有兴趣的朋友，请参考“**[乳首开发方法总结](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-list-nipple)**”。
 
-    （方法记载在“**[塑料瓶＋乳首自慰的手法](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-18)**”中）
+    （方法记载在“**[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)**”中）
 4.  会阴自慰＋刺激其他性感带
 
     取决于其他性感带的开发程度。同时刺激会阴部会改变快感的性质，因此在感到厌倦或想开发会阴时有效。
@@ -189,11 +189,11 @@
 
 ## 进一步提高快感的方法
 
-*   导入“**[强化性感的方法总结](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-19)**”
-*   定期进行“**[能量高潮](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-15)**”
+*   导入“**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”
+*   定期进行“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”
 
     相当重要。锻炼骨盆底肌（PC肌）的性感，会增强会阴性感。
-*   进行“**[会阴性感](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-12)**”
+*   进行“**[开发会阴性感的方法总结](/dryorg/ein/page-12.md)**”
 *   进行“**[乳首开发方法](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-list-nipple)**”
 *   用眼罩或毛巾被蒙住眼睛
 

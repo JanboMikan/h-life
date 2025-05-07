@@ -104,7 +104,7 @@ SM自慰时，创造环境，坐在床上，使用准备好的SM用品和性玩�
 
 ## 要点和技巧（诀窍和建议）
 
-请预先了解「**[强化性感的方法总结](https://web.archive.org/web/20190821170550/http://adlib1.net/ws2/h-life/page-19)**」和「**[关于干性高潮的技巧和知识](https://web.archive.org/web/20190821170550/http://adlib1.net/ws2/h-life/page-55)**」。
+请预先了解「**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**」和「**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)**」。
 
 在此基础上，如果具备以下要素会更好。
 
@@ -246,7 +246,7 @@ SM玩法的精髓在于欲擒故纵。在享受受虐play的同时，**抑制刺
 
 如果是男性，涂在乳首上。如果是女性，涂在乳首、私处或阴道内，可以**缓慢**刺激性感，使其发情。
 
-详情请参考「**[用催情折磨自慰，沉浸在愉悦快感中的方法总结](https://web.archive.org/web/20190821170550/http://adlib1.net/ws2/h-life/page-99)**」。
+详情请参考「**[媚药刺激自慰，沉浸在愉悦快感中的方法总结](/dryorg/yarikata/page-99.md)**」。
 
 [姬泣霜](https://www.e-nls.com/access.php?agency_id=af339507&pcode=4008)
 
@@ -258,7 +258,7 @@ SM玩法的精髓在于欲擒故纵。在享受受虐play的同时，**抑制刺
 
 ……但是，**时间到了，电源会自动关闭，需要定期重新打开开关**。（还有，刺激要温柔哦）
 
-详情请参考「**[快乐通电自慰的方法总结](https://web.archive.org/web/20190821170550/http://adlib1.net/ws2/h-life/page-17)**」。
+详情请参考「**[快乐通电自慰方法总结](/dryorg/yarikata/page-17.md)**」。
 
 [ZEUS 掌上能量盒](https://www.e-nls.com/access.php?agency_id=af339507&pcode=XRAC126)
 

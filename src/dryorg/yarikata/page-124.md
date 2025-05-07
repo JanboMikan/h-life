@@ -76,13 +76,13 @@ PC肌，你锻炼了吗？
 
 ### 通过骨盆底肌运动实现干性高潮的方法
 
-想要通过呼吸法达到干性高潮，请参考“[性能量高潮的做法](https://web.archive.org/web/20190905082450/http://adlib1.net/ws2/h-life/page-15)”。
+想要通过呼吸法达到干性高潮，请参考“[能量高潮的技巧](/dryorg/yarikata/page-15.md)”。
 
 想要通过肛门自慰（肛交）达到高潮，请参考“[前列腺的开发方法总结](https://web.archive.org/web/20190905082450/http://adlib1.net/ws2/h-life/page-list-buttocks)”。
 
 基本上，和性能量高潮的相性“非常好”。
 
-单独刺激骨盆底肌，快感很微妙，所以请加入“[性能量高潮](https://web.archive.org/web/20190905082450/http://adlib1.net/ws2/h-life/page-15)”。
+单独刺激骨盆底肌，快感很微妙，所以请加入“[能量高潮的技巧](/dryorg/yarikata/page-15.md)”。
 
 重要的点如下：
 

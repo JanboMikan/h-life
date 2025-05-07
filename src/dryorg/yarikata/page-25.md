@@ -56,7 +56,7 @@
 
 ## 关于性感度
 
-感觉类似于“[能量高潮的实现方法](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-15) ”的快感。感觉也与“[关于催眠自慰的实现方法](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-16) ”有关。
+感觉类似于“[能量高潮的技巧](/dryorg/yarikata/page-15.md) ”的快感。感觉也与“[催眠自慰的方法](/dryorg/yarikata/page-16.md) ”有关。
 
 由于没有接触肌肤的肉体快感，快感比较淡……但是，当下腹部的意识引导引起的性感超过一定程度时，该部位就会变得无法控制……大脑不知为何会感到愉悦，并在从意识引导的部位释放出麻痹的快感的同时达到高潮。
 
@@ -68,7 +68,7 @@
 
 最重要。对性感帯进行意识引导的干性高潮，大脑的兴奋程度决定了快感的程度。
 
-・导入“[强化性感的方法总结](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-19) ”
+・导入“[强化性感的方法总结](/nipple/jyouhou/page-19.md) ”
 
 ・放松的状态
 
@@ -122,7 +122,7 @@
 
 在快感深入之前进行，可以稍微增加敏感度。
 
-・导入“[能量高潮的实现方法](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-15) ”中介绍的呼吸法
+・导入“[能量高潮的技巧](/dryorg/yarikata/page-15.md) ”中介绍的呼吸法
 
 不需要收紧PC肌。吸气时用鼻子，呼气时将嘴巴张成圆形并缓慢呼出。仅仅这样做，快感的程度也会发生很大的变化。
 
@@ -166,7 +166,7 @@
 
 ・如果不了解内在的快感，就完全没有效果
 
-如果只知道射精的快感，可能会有点困难。体验过内在快感的人，请从“[乳首开发方法总结](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-list-nipple)”或“[关于催眠自慰的实现方法](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-16) ”开始。
+如果只知道射精的快感，可能会有点困难。体验过内在快感的人，请从“[乳首开发方法总结](https://web.archive.org/web/20190909090149/http://adlib1.net/ws2/h-life/page-list-nipple)”或“[催眠自慰的方法](/dryorg/yarikata/page-16.md) ”开始。
 
 ## 关于与其他性行为的组合
 

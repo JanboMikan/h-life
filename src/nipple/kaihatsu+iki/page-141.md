@@ -181,12 +181,12 @@
 
 在通过
 
-- [“会阴性感开发方法总结”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-12)
+- [开发会阴性感的方法总结](/dryorg/ein/page-12.md)
 
 进行性开发后，
 
 - [矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)
-- [“同时责罚会阴和乳首，享受强烈干性高潮的方法总结”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-120)
+- [会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/dryorg/ein/page-120.md)
 - [“理想的乳首自慰流程”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-14)
 
 等方法，可以获得非常强烈的快感。

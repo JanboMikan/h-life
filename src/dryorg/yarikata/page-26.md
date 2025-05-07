@@ -30,7 +30,7 @@
 
 根据方法和技巧，可以迎来非常愉悦的高潮。
 
-详细内容记载在「[关于干性高潮的说明](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-24)」中。
+详细内容记载在「[关于干性高潮的说明](/dryorg/intro/page-24.md)」中。
 
 ## 条件
 
@@ -90,7 +90,7 @@
 
 记载在这里。
 
-顺便说一下，如果也阅读「[强化性感的方法总结](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-19)」，可能会变得幸福。
+顺便说一下，如果也阅读「[强化性感的方法总结](/nipple/jyouhou/page-19.md)」，可能会变得幸福。
 
 如果想知道自己拥有多少乳首性感，请查看「[关于乳首的快感神经](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-1)」。
 
@@ -132,11 +132,11 @@
 
 ## 进一步提高快感的方法
 
-参考「[会阴性感开发方法总结](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-12)」，也进行会阴开发。
+参考「[开发会阴性感的方法总结](/dryorg/ein/page-12.md)」，也进行会阴开发。
 
 会阴性感是乳首性感的朋友。**同时发展两者并同时刺激**，就可以**获得最高级别的快感和干性高潮**。
 
-导入「[宝特瓶＋乳首自慰的手法](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-18)」。
+导入「[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)」。
 
 虽然有无法集中于乳首性感的缺点，但与会阴性感的组合非常强大，因此建议尝试。
 

@@ -30,12 +30,12 @@
 
 请使用以下两种方法之一来开发乳首！
 
-- [“高效的乳首开发方法说明”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-2)
-- [“用手进行的乳首开发方法”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-11)
+- [关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)
+- [关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)
 
 另外，查看
 
-- [“关于乳首的敏感度等级”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-1)
+- [关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.md)
 
 中记载的“乳首敏感度等级表”，可以确认之后还需要开发多久才能达到乳首高潮。
 

@@ -8,11 +8,11 @@
 
 在开始乳首开发之前，请先浏览以下3篇文章。其中记载了关于乳首开发和乳首性感的信息，相信能加深您对乳首开发的理解。
 
-[关于乳首开发](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-9)
+[关于乳首开发](/nipple/intro/page-9.md)
 
-[乳首开发的风险](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-10)
+[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)
 
-[关于乳首开发的Q&A（问题与回答）～！](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-40)
+[关于乳首开发的Q&A～！](/nipple/kaihatsu+iki/page-40.md)
 
 特别是要仔细阅读“乳首开发的风险”。进行乳首开发，作为“乳首获得快感”的代价，会“给身体带来变化”。……而且，“**乳首越舒服，身体的变化也越强烈**”。有些变化是无法逆转的，请仔细考虑后再进行乳首开发。
 
@@ -20,19 +20,19 @@
 
 如果持续进行适当的开发，最终可以获得与女性乳首“**同等**”或“**以上**”的快感。（注意，达到同等水平大约需要**1～5年**）
 
-男性的乳首与快感神经不发达的女性乳首几乎相同，如果开发性感，就会引发“干性高潮”。（“[关于干性高潮的说明](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-24)”）
+男性的乳首与快感神经不发达的女性乳首几乎相同，如果开发性感，就会引发“干性高潮”。（“[关于干性高潮的说明](/dryorg/intro/page-24.md)”）
 
 “与女性高潮相似的现象”呢。非常舒服哦～。
 
 ## 乳首开发基本上该做什么
 
-只需将带有针的磁石贴（主要是“磁针贴”“关怀黄金”之类的）“啪”地一下刺入“乳首中心”并贴上即可。如果是通常开发，其他什么都不需要。（详情请参考“[高效的乳首开发方法说明](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-2)”）
+只需将带有针的磁石贴（主要是“磁针贴”“关怀黄金”之类的）“啪”地一下刺入“乳首中心”并贴上即可。如果是通常开发，其他什么都不需要。（详情请参考“[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)”）
 
 虽然比较花钱，但据说效果最高。我也推荐这种方法。
 
 磁针乳首开发，基本上是“将磁针贴贴在乳首上放置2～4天，然后什么都不贴放置1～3天”的循环。非常简单。（顺便说一句，在放置期间的最后一天，也做一下“[乳首自慰](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-5)”。可以确认自己的乳首发育到什么程度了，也有助于乳首性感的发展）
 
-……另外，如果不想花钱，可以参考“[用手进行乳首开发的方法](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-11)”。虽然不如“[高效的乳首开发方法说明](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-2)”，但可以缓慢地发展乳首性感。
+……另外，如果不想花钱，可以参考“[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)”。虽然不如“[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)”，但可以缓慢地发展乳首性感。
 
 ## 乳首开发 最大的敌人 … “厌倦”！
 
@@ -58,7 +58,7 @@
 
 从“[干性高潮的手法一览](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-list-dry)”中选择适合自己的方法尝试一下。
 
-推荐“[催眠自慰](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-16)”、“[能量高潮（PC肌收缩自慰）](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-15)”、“[妄想自慰](https://web.archive.org/web/20190917130127/http://adlib1.net/ws2/h-life/page-28)”。这些干性自慰即使经验不足也容易见效。
+推荐“[催眠自慰的方法](/dryorg/yarikata/page-16.md)”、“[能量高潮的技巧](/dryorg/yarikata/page-15.md)”、“[意淫自慰方法总结](/dryorg/yarikata/page-28.md)”。这些干性自慰即使经验不足也容易见效。
 
 另外，对于男性来说，还有一种叫做“前列腺开发”的手法，即“将器具插入肛门”，开发其中的性感带，但肛门开发的难度较高，这里就不做详细说明了。（以后会另写文章介绍）
 

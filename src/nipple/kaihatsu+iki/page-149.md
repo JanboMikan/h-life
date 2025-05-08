@@ -24,9 +24,9 @@
 
 关于做法，请参考以下文章。
 
-[“有效率的乳首开发方法说明”](https://web.archive.org/web/20241106204945/https://adlib1.net/ws2/h-life/page-2)
+[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)
 
-[“用手进行乳首的开发方法总结”](https://web.archive.org/web/20241106204945/https://adlib1.net/ws2/h-life/page-11)
+[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)
 
 ### 乳首性感稍微发达的人通过刺激进行乳首开发
 

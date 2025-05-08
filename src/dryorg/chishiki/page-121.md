@@ -20,15 +20,15 @@
 
 ## 首先，应该做什么
 
-请查看“**[乳首开发的风险](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-10)**”，决定是否可以进行乳首的性开发。
+请查看“**[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)**”，决定是否可以进行乳首的性开发。
 
 如果OK，就继续往下说。如果NG，建议享受“**[催眠自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-list-hypno)**”、“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”、“**[冥想自慰方法总结](/dryorg/yarikata/page-92.md)**”等。
 
 那么，从乳首开发开始的情况……
 
-“**[高效的乳首开发方法说明](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-2)**”
+“**[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)**”
 
-“**[面向初学者的乳首开发入门讲座](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-41)**”
+“**[【新手向】乳首开发入门讲座](/nipple/intro/page-41.md)**”
 
 看看这些，大致就明白了。乳首性感带的培育，使用磁针贴是最快捷的。
 
@@ -72,7 +72,7 @@
 
 催眠自慰通过使用身体性感开发系、干性高潮系、乳首开发系这3种，可以一口气强化乳首的性感。
 
-（顺便，也请阅读“**[关于快速培育乳首性感的小窍门](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-43)**”）
+（顺便，也请阅读“**[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.md)**”）
 
 之后，
 
@@ -90,7 +90,7 @@
 
 ## 关于身体的性开发和乳首开发
 
-一边通过“**[关于乳首的快感神经](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-1)**”确认自己的乳首的敏感度等级，一边继续进行性开发。
+一边通过“**[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.md)**”确认自己的乳首的敏感度等级，一边继续进行性开发。
 
 另外，也多用“催眠自慰”，一边看“**[干性催眠的性感度等级一览](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-111)**”，一边确认自己的大脑的快感神经发展到了什么程度。
 

@@ -42,8 +42,8 @@
 
 对男性乳首自慰（チクニー）感兴趣的朋友，可以参考以下内容：
 
-*   “**[关于乳首开发](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-9)**”
-*   “**[关于干性高潮的说明](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-24)**”
+*   “**[关于乳首开发](/nipple/intro/page-9.md)**”
+*   “**[关于干性高潮的说明](/dryorg/intro/page-24.md)**”
 
 ## 为什么男性也有乳首？
 
@@ -77,9 +77,9 @@
 
 定期爱抚乳首，无论男女，**性感都会逐渐发达**。虽然是慢慢地，但一定会发达。
 
-（关于快感神经的发达程度和感受方式，请参考“**[关于乳首的快感神经](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-1)**”的记载）
+（关于快感神经的发达程度和感受方式，请参考“**[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.md)**”的记载）
 
-（不仅限于乳首，只要是性感带，持续爱抚，那个部位的敏感度就会提高。更详细的内容请参考“**[关于性感带的说明](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-74)**”）
+（不仅限于乳首，只要是性感带，持续爱抚，那个部位的敏感度就会提高。更详细的内容请参考“**[关于性感带的说明](/dryorg/seikantai/page-74.md)**”）
 
 ……我不太清楚具体原因……总之，我理解的事实是，持续爱抚就会使性感发达。
 
@@ -89,11 +89,11 @@
 
 只要进行“**适当的乳首开发**”、“**定期爱抚乳首**”、“**用乳首做爱**”中的任何一项，乳首的快感神经就会逐渐成长。
 
-适当的乳首开发……“**[高效的乳首开发方法说明](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-2)**”
+适当的乳首开发……“**[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)**”
 
-爱抚乳首……“**[用手进行乳首开发的方法](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-11)**”
+爱抚乳首……“**[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)**”
 
-用乳首做爱……“**[乳首自慰的方法](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-5)**”、“**[乳首自慰（チクニー）的方法总结](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-26)**”
+用乳首做爱……“**[乳首自慰的方法](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-5)**”、“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”
 
 请参考这些文章。
 
@@ -131,6 +131,6 @@
 
 以上。
 
-对于男性来说，存在“**[乳首开发的风险](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-10)**”，所以在进行乳首开发时，请务必确认这一点。
+对于男性来说，存在“**[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)**”，所以在进行乳首开发时，请务必确认这一点。
 
 （女性进行乳首开发，除了提高敏感度之外，还有胸部肥大（丰胸）、胸部整体的敏感度提高、皮肤变得有光泽等影响）

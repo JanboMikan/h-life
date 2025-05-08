@@ -15,7 +15,7 @@
 
 ## 男性的乳首是什么？
 
-在“ **[乳首是什么（关于乳首和性的说明）](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-90)** ”中进行了说明。
+在“ **[关于乳首（乳首与性感的说明）](/nipple/intro/page-90.md)** ”中进行了说明。
 
 ## 什么是男性乳首自慰？
 
@@ -51,11 +51,11 @@
 
 为了通过乳首获得快感，需要进行“乳首开发”。
 
-“ **[关于乳首开发](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-9)** ”
+“ **[关于乳首开发](/nipple/intro/page-9.md)** ”
 
-“ **[乳首开发的风险](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-10)** ”
+“ **[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)** ”
 
-“ **[面向初学者的乳首开发入门讲座](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-41)** ”
+“ **[【新手向】乳首开发入门讲座](/nipple/intro/page-41.md)** ”
 
 首先学习乳首开发的知识，
 
@@ -65,11 +65,11 @@
 
 学习性感帯与干性高潮的关系，
 
-“ **[高效的乳首开发方法说明](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-2)** ”
+“ **[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)** ”
 
-“ **[用手进行乳首开发的方法](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-11)** ”
+“ **[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)** ”
 
-“ **[快速培养乳首性感的小窍门](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-43)** ”
+“ **[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.md)** ”
 
 然后进行乳首的性开发。
 
@@ -77,7 +77,7 @@
 
 此外，
 
-“ **[关于乳首的快感神经](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-1)** ”
+“ **[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.md)** ”
 
 如果将文章中记载的“乳首敏感度等级表”与当前状态进行比较，就可以知道性开发进行了多少，以及还需要开发多少才能达到乳首高潮。
 

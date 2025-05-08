@@ -20,7 +20,7 @@
 
 **乳首的性感带达到一定以上** 的发达程度，**无论男女**，都可以迎来干性高潮。
 
-诶？真的有这种东西吗！？如果有人这么想，请参考「[关于乳首开发](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-9)」。
+诶？真的有这种东西吗！？如果有人这么想，请参考「[关于乳首开发](/nipple/intro/page-9.md)」。
 
 对乳首开发有兴趣的人，请参考「[乳首开发方法总结](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-list-nipple)」。
 
@@ -36,9 +36,9 @@
 
 为了进行乳首自慰，**乳首性感的发展是必须的**。
 
-「[效率好的乳首开发方法说明](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-2)」（收费，但效果最好）
+「[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)」（收费，但效果最好）
 
-「[用手进行的乳首开发方法](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-11)」（免费的乳首开发）
+「[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)」（免费的乳首开发）
 
 「[高速进行的乳首开发方法](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-6)」
 
@@ -60,7 +60,7 @@
 
 乳首自慰（以及，乳首的性开发），男女执行都会稍微生成「女性荷尔蒙」，因此会产生各种风险。
 
-如果感到不安，请参考「[乳首开发的风险](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-10)」，然后在「自行负责」的前提下，执行。
+如果感到不安，请参考「[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)」，然后在「自行负责」的前提下，执行。
 
 ## 关于性感度
 
@@ -92,11 +92,11 @@
 
 顺便说一下，如果也阅读「[强化性感的方法总结](/nipple/jyouhou/page-19.md)」，可能会变得幸福。
 
-如果想知道自己拥有多少乳首性感，请查看「[关于乳首的快感神经](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-1)」。
+如果想知道自己拥有多少乳首性感，请查看「[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.md)」。
 
-在乳首发达的状态下进行乳首自慰时，可以感受到什么样的快感，请查看「[感受到快感时的身体变化](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-7)」。
+在乳首发达的状态下进行乳首自慰时，可以感受到什么样的快感，请查看「[感受到色情快感时的状态](/nipple/kaihatsu+iki/page-7.md)」。
 
-通过乳首自慰迎来干性高潮时，可以变得多么愉悦，请确认「[高潮的种类和感觉](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-8)」。
+通过乳首自慰迎来干性高潮时，可以变得多么愉悦，请确认「[关于高潮的深度和感觉的说明](/nipple/kaihatsu+iki/page-8.md)」。
 
 ## 要点和重点
 
@@ -172,7 +172,7 @@
 1.  如果乳首性感没有发展，就完全得不到效果
 2.  乳首性感的发展很慢，缺乏即时性
 3.  乳首开发需要持续进行
-4.  存在很多[风险](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-10)
+4.  存在很多[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.md)
 5.  与射精相比，达到高潮的时间较慢。兴奋也较慢。
 6.  乳首、乳房会肥大化
 7.  有可能只是被衬衫摩擦也会有感觉

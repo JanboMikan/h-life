@@ -1,7 +1,7 @@
 # 关于本站
 
-主要是[H-Life](https://web.archive.org/web/20250122052017/https://adlib1.net/ws2/h-life/)文章的整理和翻译。
+本站是[H-Life](https://web.archive.org/web/20250122052017/https://adlib1.net/ws2/h-life/)及[桃ナビ](https://web.archive.org/web/20241009131137/https://adlib1.net/ws2/momonavi/)文章的整理和翻译。版权归原作者所有，翻译仅作为中文社区同好阅读交流使用。原网站目前无法访问，因此部分链接使用[Wayback Machine](https://web.archive.org/)的存档代替。
 
-不少文章和[生如夏花知识库](https://docs.viva-la-vita.org/)是重复的，不如说夏花知识库很大一部分本来就来源于此，就不列入了。
+可以将本站与[生如夏花知识库](https://docs.viva-la-vita.org/)配合使用。知识库是对以上站点内容的总结汇编，提供更加简洁和行之有效的指南。因此内容与本站有一部分重复，主要是乳首相关的章节。
 
-由于原网站目前还是无法访问的状态，所有链接暂时都用[Wayback Machine](https://web.archive.org/)的。
+译者：[ジャボ蜜柑](https://bbs.viva-la-vita.org/u/JanboMikan)（[TG联系我](https://t.me/shabushabu_bot)）

@@ -10,14 +10,14 @@
 
 ## 干性高潮是什么？
 
-请参考「[关于干性高潮的说明](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-24)」。
+请参考「[关于干性高潮的说明](/dryorg/intro/page-24.md)」。
 
 关于具体方法，请参考：
 
 *   「[乳首开发方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-list-nipple)」
 *   「[干性高潮的方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-list-dry)」
 *   「[催眠自慰的信息总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-list-hypno)」
-*   「[会阴自慰的方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-119)」
+*   「[会阴自慰方法总结](/dryorg/ein/page-119.md)」
 *   「[前列腺的开发方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-list-buttocks)」
 
 以上链接文章均为关于干性高潮内容的总结。
@@ -82,7 +82,7 @@
 
 ## 想达到干性高潮却无法达成？
 
-建议先浏览「[关于干性高潮的技巧和知识](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-55)」和「[强化性感的方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-19)」。
+建议先浏览「[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)」和「[强化性感的方法总结](/nipple/jyouhou/page-19.md)」。
 
 在理解上述内容并实践后，如果仍然无法达到干性高潮，那就是**性感带开发不足**。
 
@@ -264,7 +264,7 @@
 
 ## 关于至高的干性高潮
 
-方法记载在「[引发最舒服的干性高潮的方法总结](https://web.archive.org/web/20190909102430/http://adlib1.net/ws2/h-life/page-121)」中。
+方法记载在「[获得极致快感干性高潮的方法总结](/dryorg/chishiki/page-121.md)」中。
 
 以上。
 

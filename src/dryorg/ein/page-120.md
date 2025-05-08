@@ -67,7 +67,7 @@
 
 「[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)」
 
-「[关于性感带的说明](https://web.archive.org/web/20190909090130/http://adlib1.net/ws2/h-life/page-74)」
+「[关于性感带的说明](/dryorg/seikantai/page-74.md)」
 
 「[强化性感的方法总结](/nipple/jyouhou/page-19.md)」
 

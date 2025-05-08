@@ -22,7 +22,7 @@
 
 请查看“**[乳首开发的风险](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-10)**”，决定是否可以进行乳首的性开发。
 
-如果OK，就继续往下说。如果NG，建议享受“**[催眠自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-list-hypno)**”、“**[能量高潮](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-15)**”、“**[冥想自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-92)**”等。
+如果OK，就继续往下说。如果NG，建议享受“**[催眠自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-list-hypno)**”、“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”、“**[冥想自慰方法总结](/dryorg/yarikata/page-92.md)**”等。
 
 那么，从乳首开发开始的情况……
 
@@ -34,9 +34,9 @@
 
 **同时**，也开发会阴。之后会变得重要。
 
-“**[会阴自慰的做法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-119)**”
+“**[会阴自慰方法总结](/dryorg/ein/page-119.md)**”
 
-“**[会阴性感带的开发方法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-12)**”
+“**[开发会阴性感的方法总结](/dryorg/ein/page-12.md)**”
 
 关于会阴开发，上述两篇文章比较容易理解。
 
@@ -50,15 +50,15 @@
 
 在此期间，加入各种性开发要素，开发“身体的性感带”和“脑内快感神经”。
 
-“**[能量高潮的做法](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-15)**”
+“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”
 
-“**[妄想自慰的做法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-28)**”
+“**[意淫自慰方法总结](/dryorg/yarikata/page-28.md)**”
 
-“**[冥想自慰的做法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-92)**”
+“**[冥想自慰方法总结](/dryorg/yarikata/page-92.md)**”
 
-“**[B点（斯宾塞乳腺尾部）的开发和爱抚方法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-95)**”
+“**[B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](/nipple/chibusa/page-95.md)**”
 
-“**[塑料瓶＋乳首自慰的手法](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-18)**”
+“**[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)**”
 
 “**[棉棒自慰（棉棒肛门自慰）的做法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-63)**”（仅限可以轻轻插入肛门的情况）
 
@@ -76,11 +76,11 @@
 
 之后，
 
-“**[关于性感带的说明](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-74)**”
+“**[关于性感带的说明](/dryorg/seikantai/page-74.md)**”
 
-“**[关于干性高潮的小窍门和知识](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-55)**”
+“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)**”
 
-“**[强化性感的方法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-19)**”
+“**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”
 
 学习关于性感和干性高潮的知识。
 
@@ -98,9 +98,9 @@
 
 （不规律的生活会阻碍快感神经的发展，所以要过健康的生活）
 
-（如果微妙地无法达到高潮，请看“**[给勉强无法达到乳首高潮的人的建议](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-39)**”）
+（如果微妙地无法达到高潮，请看“**[给乳首高潮难以达到者的建议](/nipple/nayami/page-39.md)**”）
 
-还有，如果想干性高潮却被阴茎的射精妨碍，请看“**[将乳首性感和射精感分离的方法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-42)**”。
+还有，如果想干性高潮却被阴茎的射精妨碍，请看“**[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.md)**”。
 
 在干性自慰的过程中，禁止阴茎的射精。如果诱发了射精，无论如何都要阻止。因为无法进入下一个阶段。
 
@@ -125,7 +125,7 @@
 
 ## 非常舒服的干性自慰的做法
 
-“**[理想的乳首自慰流程](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-14)**”和“**[同时刺激会阴和乳首，享受强烈干性高潮的方法总结](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-120)**”可以参考。
+“**[理想的乳首自慰流程](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-14)**”和“**[会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/dryorg/ein/page-120.md)**”可以参考。
 
 用充分进行性开发的身体，引起“乳首高潮×2 → 乳首＋会阴高潮”，就能迎来极致快感的干性高潮哦～。
 

@@ -10,7 +10,7 @@
 
 ## 什么是干性高潮？
 
-“**[干性高潮](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-24)**”是指男性像女性一样达到高潮（非射精的高潮）。（反义词是湿性高潮）
+“**[关于干性高潮的说明](/dryorg/intro/page-24.md)**”是指男性像女性一样达到高潮（非射精的高潮）。（反义词是湿性高潮）
 
 ## 干性高潮的优点（优点、长处）
 
@@ -69,7 +69,7 @@
 
     如果直接对那个位置进行性开发，只需触摸那里就能达到高潮。
 
-    详情请参考“**[关于性感带的说明](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-74)**”。
+    详情请参考“**[关于性感带的说明](/dryorg/seikantai/page-74.md)**”。
 *   **能够了解体内的性感**
 
     没有体验过干性的男性，只能感受到阴茎和睾丸的性感，
@@ -196,7 +196,7 @@
     ……虽然也有一些可以免费进行的干性开发，但性感的育成速度很慢……。
 *   **快感会因身体状况和性感的好坏而大幅波动**
 
-    需要准备“**[性感强化](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-19)**”。
+    需要准备“**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”。
 *   **有些人进行肛门开发后会出现身体不适（副作用）**
 
     大多数是“前列腺炎”。在直肠不好的时候玩耍，或者过度进行肛门自慰，卫生管理没有做好，很容易发生。
@@ -262,7 +262,7 @@
 
 请从“**[干性高潮的做法总结](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-list-dry)**”中享受适合自己的干性自慰。
 
-（推荐“**[乳首自慰](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-26)**”、“**[催眠自慰](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-16)**”、“**[能量高潮](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-15)**”）
+（推荐“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”、“**[催眠自慰的方法](/dryorg/yarikata/page-16.md)**”、“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”）
 
 ## 关于干性高潮的安全性
 
@@ -276,9 +276,9 @@
 
 ## 关于干性高潮的详细内容说明
 
-请看“**[关于干性高潮的技巧和知识](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-55)**”
+请看“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)**”
 
-“**[干性高潮达成时的感觉和快感](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-125)**”
+“**[关于达成干性高潮时的感觉和快感](/dryorg/chishiki/page-125.md)**”
 
 “**[关于干性高潮的提问和回答～！（Q＆A）](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-56)**”
 
@@ -288,7 +288,7 @@
 
 “**[干性高潮的做法总结](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-list-dry)**”
 
-“**[介绍16种男性的干性高潮！](https://web.archive.org/web/20190909082913/http://adlib1.net/ws2/h-life/page-47)**”
+“**[男性的干性高潮的16种介绍！](/dryorg/chishiki/page-47.md)**”
 
 中进行了总结！
 

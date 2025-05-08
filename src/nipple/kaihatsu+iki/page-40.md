@@ -113,7 +113,7 @@
 
 ## 问：请告诉我如何才能享受舒适的乳首刺激
 
-要感到舒适，首先需要乳首性敏感的发达。在此基础上，请尝试[“乳首自慰的方法”](https://web.archive.org/web/20241205032503/https://adlib1.net/ws2/h-life/page-5)、[“理想的乳首自慰流程”](https://web.archive.org/web/20241205032503/https://adlib1.net/ws2/h-life/page-14)、[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)，或者使用成人用品“UFO”。
+要感到舒适，首先需要乳首性敏感的发达。在此基础上，请尝试[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)、[理想的乳首自慰流程](/nipple/chikuni/page-14.md)、[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)，或者使用成人用品“UFO”。
 
 ## 问：男人和女人的乳首敏感度一样吗？
 
@@ -129,7 +129,7 @@
 
 ## 问：请告诉我如何抚摸乳首
 
-请看[“乳首自慰的方法”](https://web.archive.org/web/20241205032503/https://adlib1.net/ws2/h-life/page-5)。
+请看[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)。
 
 ## 问：男人的乳首会感到快感吗？如何开发？
 

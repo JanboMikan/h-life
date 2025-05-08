@@ -87,7 +87,7 @@
 
 通过强化性感的方法，提高身体的快感（提高敏感度非常重要）……，
 
-“ **[乳首自慰的方法](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-5)** ”
+“ **[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)** ”
 
 “ **[让乳首和乳晕感到愉悦的爱抚方法总结](/nipple/chikuni/page-84.md)** ”
 
@@ -117,7 +117,7 @@
 
 通过这两个方法，开发“会阴”和“其深处（前列腺性感周边）”，
 
-“ **[理想的乳首自慰流程](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-14)** ”
+“ **[理想的乳首自慰流程](/nipple/chikuni/page-14.md)** ”
 
 “ **[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)** ”
 

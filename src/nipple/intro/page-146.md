@@ -144,7 +144,7 @@
 
 “[【新手向】乳首开发入门讲座](/nipple/intro/page-41.md)”
 
-“[**乳首自慰的方法总结**](https://web.archive.org/web/20190909075344/http://adlib1.net/ws2/h-life/page-5)”
+“[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)”
 
 “[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.md)”
 

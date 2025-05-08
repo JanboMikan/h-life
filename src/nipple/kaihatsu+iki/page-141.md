@@ -117,7 +117,7 @@
 
 放松后，就可以开始乳首自慰了。
 
-方法记载在[“乳首自慰方法总结”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-5)中。
+方法记载在[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)中。
 
 用拇指和中指（或者食指或无名指）捏住乳首，轻轻地转动。
 
@@ -187,6 +187,6 @@
 
 - [矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.md)
 - [会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/dryorg/ein/page-120.md)
-- [“理想的乳首自慰流程”](https://web.archive.org/web/20241205032150/https://adlib1.net/ws2/h-life/page-14)
+- [理想的乳首自慰流程](/nipple/chikuni/page-14.md)
 
 等方法，可以获得非常强烈的快感。

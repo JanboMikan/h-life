@@ -93,7 +93,7 @@
 
 爱抚乳首……“**[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)**”
 
-用乳首做爱……“**[乳首自慰的方法](https://web.archive.org/web/20190923230200/http://adlib1.net/ws2/h-life/page-5)**”、“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”
+用乳首做爱……“**[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)**”、“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”
 
 请参考这些文章。
 

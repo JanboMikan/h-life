@@ -86,7 +86,7 @@
 
 ## 乳首自慰的方法
 
-「[乳首自慰的方法](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-5)」
+「[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.md)」
 
 记载在这里。
 
@@ -140,7 +140,7 @@
 
 虽然有无法集中于乳首性感的缺点，但与会阴性感的组合非常强大，因此建议尝试。
 
-导入「[理想的乳首自慰流程](https://web.archive.org/web/20190909101713/http://adlib1.net/ws2/h-life/page-14)」。
+导入「[理想的乳首自慰流程](/nipple/chikuni/page-14.md)」。
 
 在用手进行的乳首自慰中，我认为这是最令人愉悦的方法。请尝试一下～。
 

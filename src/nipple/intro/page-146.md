@@ -154,7 +154,7 @@
 
 “[**乳首責めグッズ「UFO」で、気持ちいいチクニーをする方法**](https://web.archive.org/web/20190909075344/http://adlib1.net/ws2/h-life/page-143)”
 
-“[**乳首開発が可能なグッズの説明と評価**](https://web.archive.org/web/20190909075344/http://adlib1.net/ws2/h-life/page-3)”
+“[乳首开发可能使用的商品说明与评价](/nipple/kaihatsu+iki/page-3.md)”
 
 如果感兴趣，请浏览。
 

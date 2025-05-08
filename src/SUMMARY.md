@@ -17,7 +17,7 @@
   - [关于高效乳首开发方法（使用磁针贴进行性开发）](nipple/kaihatsu+iki/page-2.md)
   - [关于用手进行乳首开发的方法](nipple/kaihatsu+iki/page-11.md)
   - [乳首性感带通过刺激开发的方法总结](nipple/kaihatsu+iki/page-149.md)
-  - [关于快速培养乳头性感的技巧](nipple/kaihatsu+iki/page-43.md)
+  - [关于快速培养乳首性感的技巧](nipple/kaihatsu+iki/page-43.md)
   - [感受到色情快感时的状态](nipple/kaihatsu+iki/page-7.md)
   - [关于高潮的深度和感觉的说明](nipple/kaihatsu+iki/page-8.md)
   - [通过乳首自慰达到高潮的基准](nipple/kaihatsu+iki/page-38.md)

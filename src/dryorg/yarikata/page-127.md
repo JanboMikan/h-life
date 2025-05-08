@@ -56,7 +56,7 @@ SM玩法容易造成感觉阻断，可能会无法了解周围的情况。
 
 ## 关于风险
 
-引用自「**[用木夹子折磨乳首的方法总结](https://web.archive.org/web/20190821170550/http://adlib1.net/ws2/h-life/page-118)**」。
+引用自「**[用木制夹子夹乳首的方法总结](/nipple/kaihatsu+iki/page-118.md)**」。
 
 ------
 

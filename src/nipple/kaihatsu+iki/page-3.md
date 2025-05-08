@@ -18,7 +18,7 @@
 
 经济宽裕的人，选择这个就对了。如果不是，最好尝试其他器具。
 
-关于开发方法，请参考「[高效的乳首开发方法说明](https://web.archive.org/web/20190909084024/http://adlib1.net/ws2/h-life/page-2)」。
+关于开发方法，请参考「[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.md)」。
 
 ## 普通磁石贴系列 评价：◎
 
@@ -88,7 +88,7 @@
 
 有受虐倾向的人可能有效。
 
-・「[用木夹子折磨乳首的方法总结](https://web.archive.org/web/20190909084024/http://adlib1.net/ws2/h-life/page-118)」
+・「[用木制夹子夹乳首的方法总结](/nipple/kaihatsu+iki/page-118.md)」
 
 想使用的人，请参考这篇文章。
 
@@ -142,7 +142,7 @@
 
 虽然不如磁针贴，但用手开发乳首也相当有效。
 
-不太想花钱的人，不要勉强，用「[用手进行的乳首开发方法](https://web.archive.org/web/20190909084024/http://adlib1.net/ws2/h-life/page-11)」进行开发吧。
+不太想花钱的人，不要勉强，用「[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.md)」进行开发吧。
 
 ## 乳首系的催眠音频 评价：◎
 
@@ -150,7 +150,7 @@
 
 「[催眠自慰](https://web.archive.org/web/20190909084024/http://adlib1.net/ws2/h-life/page-list-hypno)」如果适合，会相当有效。
 
-可以加快乳首性感的发展。感兴趣的人，请浏览「[催眠自慰的做法](https://web.archive.org/web/20190909084024/http://adlib1.net/ws2/h-life/page-16)」。
+可以加快乳首性感的发展。感兴趣的人，请浏览「[催眠自慰的方法](/dryorg/yarikata/page-16.md)」。
 
 以上。
 

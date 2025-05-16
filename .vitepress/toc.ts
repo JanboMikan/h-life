@@ -53,6 +53,7 @@ if (currentSection) {
 
 export const mainNav = [
   { text: "介绍", link: "/" },
+  { text: "目录", link: "/SUMMARY.md" },
   { text: "乳首", link: "/nipple/intro/page-90.md" },
   { text: "雌性高潮", link: "/femorg/intro/page-a4-1.md" },
   { text: "干性高潮", link: "/dryorg/intro/page-24.md" },

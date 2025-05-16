@@ -49,7 +49,7 @@ if (currentSection) {
   sections.push(currentSection);
 }
 
-console.log(JSON.stringify(sections, null, "  "));
+// console.log(JSON.stringify(sections, null, "  "));
 
 export const mainNav = [
   { text: "介绍", link: "/" },
@@ -59,6 +59,10 @@ export const mainNav = [
 ];
 export const defaultSidebar = [
   ...mainNav,
+  {
+    text: "チクニーでイク 乳首性感帯開発記録",
+    link: "/n6551fs/intro.md",
+  },
   { text: "催眠（计划中）" },
   { text: "前列腺（计划中）" },
   { text: "湿潮技巧（计划中）" },
@@ -69,4 +73,7 @@ export let sidebar = {
   "/nipple/": sections.find((x) => x.text === "乳首"),
   "/femorg/": sections.find((x) => x.text === "雌性高潮"),
   "/dryorg/": sections.find((x) => x.text === "干性高潮"),
+  "/n6551fs/": sections.find(
+    (x) => x.text === "チクニーでイク 乳首性感帯開発記録"
+  ),
 };

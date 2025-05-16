@@ -4,3 +4,10 @@
 ～符号
 「括号
 ・符号
+
+
+
+Build command:curl -L https://github.com/rust-lang/mdBook/releases/download/v0.4.48/mdbook-v0.4.48-x86_64-unknown-linux-gnu.tar.gz | tar xvz && ./mdbook build
+Build output:book
+Root directory:
+Build comments:Enabled

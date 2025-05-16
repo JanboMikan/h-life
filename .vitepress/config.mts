@@ -22,6 +22,7 @@ export default defineConfig({
     // https://vitepress.dev/reference/default-theme-config
     logo: "/heartmini.ico",
     nav: mainNav,
+    outline: [2, 6],
     search: {
       provider: "local",
       options: {

@@ -14,11 +14,13 @@ export default defineConfig({
   title: "H-Life翻译整理",
   description: "主要是H-Life和桃ナビ的翻译整理",
   srcDir: "./src", // Assuming your markdown files are inside a 'src' directory
+  head: [["link", { rel: "icon", href: "/heartmini.ico" }]],
   sitemap: {
     hostname: "https://h-life.pages.dev",
   },
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
+    logo: "/heartmini.ico",
     nav: mainNav,
     search: {
       provider: "local",

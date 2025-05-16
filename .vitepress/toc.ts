@@ -59,13 +59,13 @@ export const mainNav = [
 ];
 export const defaultSidebar = [
   ...mainNav,
-  {
-    text: "チクニーでイク 乳首性感帯開発記録",
-    link: "/n6551fs/intro.md",
-  },
   { text: "催眠（计划中）" },
   { text: "前列腺（计划中）" },
   { text: "湿潮技巧（计划中）" },
+  {
+    text: "纯手工开发13周达到深度乳首高潮的开发记录",
+    link: "/n6551fs/intro.md",
+  },
 ];
 
 export let sidebar = {
@@ -74,6 +74,6 @@ export let sidebar = {
   "/femorg/": sections.find((x) => x.text === "雌性高潮"),
   "/dryorg/": sections.find((x) => x.text === "干性高潮"),
   "/n6551fs/": sections.find(
-    (x) => x.text === "チクニーでイク 乳首性感帯開発記録"
+    (x) => x.text === "纯手工开发13周达到深度乳首高潮的开发记录"
   ),
 };

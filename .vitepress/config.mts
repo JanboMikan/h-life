@@ -12,12 +12,14 @@ export function tokenize(text: string): Array<string> {
 
 export default defineConfig({
   title: "H-Life翻译整理",
-  description: "主要是H-Life和桃ナビ的翻译整理，包含乳首高潮、雌性高潮、干性高潮、前列腺高潮、催眠高潮等开发方式、技巧和相关信息。",
+  description:
+    "主要是H-Life和桃ナビ的翻译整理，包含乳首高潮、雌性高潮、干性高潮、前列腺高潮、催眠高潮等开发方式、技巧和相关信息。",
   srcDir: "./src", // Assuming your markdown files are inside a 'src' directory
   head: [["link", { rel: "icon", href: "/heartmini.ico" }]],
   sitemap: {
     hostname: "https://h-life.littlera.in",
   },
+  lang: "zh-CN",
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
     logo: "/heartmini.ico",

@@ -2,3 +2,6 @@ book
 output.md
 node_modules
 .wrangler
+.vitepress/dist
+.vitepress/cache
+package-lock.json

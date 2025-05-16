@@ -8,7 +8,7 @@ function extractLink(line: string) {
   }
   return {
     text: m[1],
-    link: m[2] || undefined,
+    link,
   };
 }
 let summaryContent = readFileSync("src/SUMMARY.md", { encoding: "utf-8" });
@@ -49,7 +49,7 @@ if (currentSection) {
   sections.push(currentSection);
 }
 
-// console.log(JSON.stringify(sections, null, "  "));
+//console.log(JSON.stringify(sections, null, "  "));
 
 export const mainNav = [
   { text: "介绍", link: "/" },

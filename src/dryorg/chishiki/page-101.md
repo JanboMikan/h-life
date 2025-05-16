@@ -167,7 +167,7 @@
 
 “ **[催眠自慰的方法](/dryorg/yarikata/page-16.md)** ”
 
-“ **[尾骨性感开发方法总结](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-13)** ”
+“ **[尾骨性感开发方法总结](/dryorg/yarikata/page-13.md)** ”
 
 “ **[龟头自慰的方法总结](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-36)** ”
 

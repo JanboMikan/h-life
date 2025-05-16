@@ -120,7 +120,7 @@
   - [关于干性高潮的技巧和知识](dryorg/intro/page-55.md)
 - [干性高潮的方法一览]()
   - [乳首自慰方法总结](dryorg/yarikata/page-26.md)
-  - [尾骨性感开发方法总结](dryorg/yarikata/page-137.md)
+  - [尾骨性感开发方法总结](dryorg/yarikata/page-13.md)
   - [能量高潮的技巧](dryorg/yarikata/page-15.md)
   - [催眠自慰的方法](dryorg/yarikata/page-16.md)
   - [快乐通电自慰方法总结](dryorg/yarikata/page-17.md)

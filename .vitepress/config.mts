@@ -16,7 +16,7 @@ export default defineConfig({
   srcDir: "./src", // Assuming your markdown files are inside a 'src' directory
   head: [["link", { rel: "icon", href: "/heartmini.ico" }]],
   sitemap: {
-    hostname: "https://h-life.pages.dev",
+    hostname: "https://h-life.littlera.in",
   },
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config

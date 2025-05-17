@@ -4,4 +4,4 @@
 
 可以将本站与[生如夏花知识库](https://docs.viva-la-vita.org/)配合使用。知识库是对以上站点内容（基本只包括乳首部分）的总结汇编，提供简洁和行之有效的指南。因此内容与本站有一部分重复。
 
-译者：[ジャボ蜜柑](https://bbs.viva-la-vita.org/u/JanboMikan)（[TG联系我](https://t.me/shabushabu_bot)）
+译者：[ジャンボ蜜柑](https://bbs.viva-la-vita.org/u/JanboMikan)（[TG联系我](https://t.me/shabushabu_bot)）

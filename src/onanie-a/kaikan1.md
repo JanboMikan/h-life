@@ -4,7 +4,7 @@
 
 这是基本中的基本。
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
 
 虽然不能获得非常棒的效果，但作为最简单且静态的方法，首先向大家介绍。
 
@@ -36,7 +36,7 @@
 
 大　爆　发。
 
-![](https://www.onanie-analyzer.com/stock/master-man-fin_828.png)![](https://www.onanie-analyzer.com/stock/master-man-fin_828.png)
+![](https://www.onanie-analyzer.com/stock/master-man-fin_828.png)
 
 ## 堪比初次自慰的巨浪
 
@@ -84,7 +84,7 @@
 
 这种果冻状的东西，有时会导致射精时产生疼痛。
 
-![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)
+![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)
 
 我不是专家，所以不能说得太详细，但这件事（精液中混有果冻状的东西会导致射精痛），我自己也经历过两次，在网上也偶尔能看到。
 

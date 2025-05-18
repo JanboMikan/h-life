@@ -20,6 +20,7 @@ export default defineConfig({
     hostname: "https://h-life.littlera.in",
   },
   lang: "zh-CN",
+  lastUpdated: true,
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
     logo: "/heartmini.ico",

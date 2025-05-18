@@ -15,7 +15,18 @@ export default defineConfig({
   description:
     "主要是H-Life和桃ナビ的翻译整理，包含乳首高潮、雌性高潮、干性高潮、前列腺高潮、催眠高潮等开发方式、技巧和相关信息。",
   srcDir: "./src", // Assuming your markdown files are inside a 'src' directory
-  head: [["link", { rel: "icon", href: "/heartmini.ico" }]],
+  head: [
+    ["link", { rel: "icon", href: "/heartmini.ico" }],
+    [
+      "script",
+      {},
+      `(function(w,d,s,l,i){w[l]=w[l]||[];w[l].push({'gtm.start':
+new Date().getTime(),event:'gtm.js'});var f=d.getElementsByTagName(s)[0],
+j=d.createElement(s),dl=l!='dataLayer'?'&l='+l:'';j.async=true;j.src=
+'https://www.googletagmanager.com/gtm.js?id='+i+dl;f.parentNode.insertBefore(j,f);
+})(window,document,'script','dataLayer','GTM-W5PJQNWF');`,
+    ],
+  ],
   sitemap: {
     hostname: "https://h-life.littlera.in",
   },

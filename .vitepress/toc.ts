@@ -60,13 +60,17 @@ export const mainNav = [
 ];
 export const defaultSidebar = [
   ...mainNav,
-  { text: "催眠（计划中）" },
-  { text: "前列腺（计划中）" },
-  { text: "湿潮技巧（计划中）" },
   {
     text: "纯手工开发13周达到深度乳首高潮的开发记录",
     link: "/n6551fs/intro.md",
   },
+  {
+    text: "「自慰分析家」站点",
+    link: "/onanie-a/intro.md",
+  },
+  { text: "催眠（计划中）" },
+  { text: "前列腺（计划中）" },
+  { text: "湿潮技巧（计划中）" },
 ];
 
 export let sidebar = {
@@ -77,4 +81,5 @@ export let sidebar = {
   "/n6551fs/": sections.find(
     (x) => x.text === "纯手工开发13周达到深度乳首高潮的开发记录"
   ),
+  "/onanie-a/": sections.find((x) => x.text === "「自慰分析家」站点"),
 };

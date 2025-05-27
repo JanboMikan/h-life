@@ -57,6 +57,14 @@ export const mainNav = [
   { text: "乳首", link: "/nipple/intro/page-90.md" },
   { text: "雌性高潮", link: "/femorg/intro/page-a4-1.md" },
   { text: "干性高潮", link: "/dryorg/intro/page-24.md" },
+  {
+    text: "13周乳首高潮",
+    link: "/n6551fs/intro.md",
+  },
+  {
+    text: "自慰分析家",
+    link: "/onanie-a/intro.md",
+  },
 ];
 export const defaultSidebar = [
   ...mainNav,

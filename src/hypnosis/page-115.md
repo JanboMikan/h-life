@@ -6,15 +6,15 @@
 
 这次，我将说明关于“男性通过催眠自慰实现干性高潮的方法总结”。（实践请自行承担风险）
 
-（如果不知道什么是干性高潮，请浏览“[**关于干性高潮的说明**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-24)”这篇文章）
+（如果不知道什么是干性高潮，请浏览“[关于干性高潮的说明](/dryorg/intro/page-24.md)”这篇文章）
 
 ## 关于催眠自慰的方法
 
-如果是第一次尝试催眠自慰，建议先浏览“[**催眠自慰的步骤**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-16)”和“[**关于催眠自慰的风险和危险性**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-104)”。
+如果是第一次尝试催眠自慰，建议先浏览“[催眠自慰的方法](/hypnosis/page-16.md)”和“[关于催眠自慰（催淫）的风险和危险性](/hypnosis/page-104.md)”。
 
 ## 掌握关于干性高潮的知识
 
-请务必阅读“[**关于干性高潮的技巧和知识**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-55)”。
+请务必阅读“[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)”。
 
 了解关于干性高潮的知识，效果会有很大不同哦。
 
@@ -36,7 +36,7 @@
 
 如果正在开发某个性感帯，也可以选择与该部位对应的催眠音声，否则，请选择颅内高潮系（强化快感，通过大脑达到绝顶的类型）。
 
-（如果不知道什么是颅内高潮，请参考“[**关于催眠绝顶中的“颅内高潮”和“身体高潮”的说明总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-110)”）
+（如果不知道什么是颅内高潮，请参考“[催眠高潮中“颅内高潮”和“身体高潮”的说明总结](/hypnosis/page-110.md)”）
 
 ## 尝试各种催眠音声
 
@@ -54,7 +54,7 @@
 
 想要追求真正的干性高潮的人，要努力练习不射精！
 
-（可以参考“[**将乳首性感和射精感分离的方法总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-42)”这篇文章）
+（可以参考“[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.md)”这篇文章）
 
 ## 如果可能，进行乳首、前列腺或盆底肌的性开发
 
@@ -64,7 +64,7 @@
 
 前列腺 →“[**前列腺的开发方法总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-list-buttocks)”
 
-盆底肌 →“[**能量高潮的步骤**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-15)”
+盆底肌 →“[能量高潮的技巧](/dryorg/yarikata/page-15.md)”
 
 请考虑进行性开发。
 
@@ -74,7 +74,7 @@
 
 ## 积极进行冥想或冥想自慰
 
-“[**冥想自慰的步骤总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-92)”可能会有所帮助。
+“[冥想自慰方法总结](/dryorg/yarikata/page-92.md)”可能会有所帮助。
 
 催眠自慰与冥想相性很好，同时进行可以增强被暗示性。
 
@@ -82,15 +82,15 @@
 
 如果暗示效果弱，色情部分的快感也会减弱，因此强化被暗示性也很重要。
 
-“[**更容易受到催眠音声暗示的方法总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-107)”
+“[提高催眠音声暗示感受性的方法总结](/hypnosis/page-107.md)”
 
-“[**给无法顺利进行色情催眠的人的建议**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-102)”
+“[给无法成功进行色情催眠的人的建议](/hypnosis/page-102.md)”
 
-“[**提高催眠音声被暗示性的特训方法总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-112)”
+“[提高催眠音频暗示性的训练方法总结](/hypnosis/page-112.md)”
 
 这些方法都有效。
 
-可以对照“[**干性催眠的性感度等级列表**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-111)”，确认自己的性感等级。
+可以对照“[干性催眠的性感度等级列表](/hypnosis/page-111.md)”，确认自己的性感等级。
 
 ## 反复挑战颅内高潮系的催眠自慰
 
@@ -102,7 +102,7 @@
 
 干性高潮的**快感会因身体状态而发生很大变化**。
 
-在进行催眠自慰之前，请务必认真进行“[**强化性感的方法总结**](https://web.archive.org/web/20190910111109/http://adlib1.net/ws2/h-life/page-19)”。
+在进行催眠自慰之前，请务必认真进行“[强化性感的方法总结](/nipple/jyouhou/page-19.md)”。
 
 ## 不要对干性高潮本身抱有期待
 

@@ -40,7 +40,7 @@
 
 催眠自慰是指听“色情催眠音声”进行自慰。
 
-详情请参考“[**催眠自慰的方法**](https://web.archive.org/web/20190905083410/http://adlib1.net/ws2/h-life/page-16)”。
+详情请参考“[催眠自慰的方法](/hypnosis/page-16.md)”。
 
 ## 关于催眠音声的说明文中写的“セルフ、ドライ、ウェット”
 
@@ -146,4 +146,4 @@ CV是角色音声（CharacterVoice)的简称。
 
 以上，就是与催眠音声相关的术语说明集～。
 
-对催眠自慰感兴趣的人，也请参考“[**催眠自慰的方法**](https://web.archive.org/web/20190905083410/http://adlib1.net/ws2/h-life/page-16)”！
+对催眠自慰感兴趣的人，也请参考“[催眠自慰的方法](/hypnosis/page-16.md)”！

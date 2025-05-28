@@ -108,7 +108,7 @@
 
 **・明明很努力地进行催眠自慰，却一直没有要进入状态的迹象**
 
-请看“**[给无法顺利进行色情催眠的人的建议](https://web.archive.org/web/20190831011755/http://adlib1.net/ws2/h-life/page-102)**”和“**[催眠自慰达到快感状态的方法总结](https://web.archive.org/web/20190831011755/http://adlib1.net/ws2/h-life/page-103)**”！
+请看“**[给无法成功进行色情催眠的人的建议](/hypnosis/page-102.md)**”和“**[催眠自慰达到快感的方法总结](/hypnosis/page-103.md)**”！
 
 **・听了之后，发现不是催眠音声……而是催眠风的剧情语音**
 
@@ -154,7 +154,7 @@
 
 干性自慰，除了催眠以外还有很多。
 
-请看“**[乳首自慰的方法总结](https://web.archive.org/web/20190831011755/http://adlib1.net/ws2/h-life/page-26)**”和“**[干性高潮的方法总结](https://web.archive.org/web/20190831011755/http://adlib1.net/ws2/h-life/page-list-dry)**”。
+请看“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”和“**[干性高潮的方法总结](https://web.archive.org/web/20190831011755/http://adlib1.net/ws2/h-life/page-list-dry)**”。
 
 **・被连续说0！ 0！ 0！，然后“嗯？”了一下**
 

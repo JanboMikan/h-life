@@ -12,11 +12,11 @@
 
 首先……如果不清楚催眠自慰是什么（第一次进行催眠自慰时），请参考以下文章。
 
-「**[什么是催眠自慰](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-116)**」
+「**[什么是催眠自慰](/hypnosis/page-116.md)**」
 
-「**[关于催眠自慰的风险和危险性](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-104)**」
+「**[关于催眠自慰（催淫）的风险和危险性](/hypnosis/page-104.md)**」
 
-「**[关于催眠自慰的步骤](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-16)**」
+「**[催眠自慰的方法](/hypnosis/page-16.md)**」
 
 有了这3篇文章，我想大家就能明白催眠自慰是怎么一回事了。
 
@@ -50,7 +50,7 @@
 
 白天，交感神经活跃时尝试倾听是徒劳的。请配合适当的时机倾听！
 
-……顺便说一句，也请阅读「**[提高催眠音声暗示效果的方法总结](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-107)**」。
+……顺便说一句，也请阅读「**[提高催眠音声暗示感受性的方法总结](/hypnosis/page-107.md)**」。
 
 为了尽可能提高1%的被暗示可能性。
 
@@ -126,9 +126,9 @@ Listenable pharmacy
 
 ## 催眠引导不顺利的情况
 
-请浏览「**[给无法顺利进行色情催眠的人的建议](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-102)**」
+请浏览「**[给无法成功进行色情催眠的人的建议](/hypnosis/page-102.md)**」
 
-「**[提高催眠音声被暗示性的特训方法总结](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-112)**」
+「**[提高催眠音频暗示性的训练方法总结](/hypnosis/page-112.md)**」
 
 被暗示性，可以通过本人的努力来改变。
 
@@ -156,4 +156,4 @@ Listenable pharmacy
 
 听了催眠音声后，如果多少有些反应，就说明你适合催眠自慰。
 
-就这样，以干性高潮为目标吧！如果对干性高潮感兴趣，请查看「**[催眠自慰中达到干性高潮的方法总结](https://web.archive.org/web/20190925143542/http://adlib1.net/ws2/h-life/page-115)**」。
+就这样，以干性高潮为目标吧！如果对干性高潮感兴趣，请查看「**[催眠自慰实现干性高潮的方法总结](/hypnosis/page-115.md)**」。

@@ -10,13 +10,13 @@
 
 ## 什么是催眠自慰？
 
-请参考“**[催眠自慰的方法](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-16)**”。
+请参考“**[催眠自慰的方法](/hypnosis/page-16.md)**”。
 
 从催眠术的基本术语解释到具体操作方法，都进行了全面的总结！
 
 ## 在获得快感之前，根本无法进入催眠状态的情况
 
-请参考“**[给无法顺利进行色情催眠的人的建议](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-102)**”，并尝试采取相应的对策。
+请参考“**[给无法成功进行色情催眠的人的建议](/hypnosis/page-102.md)**”，并尝试采取相应的对策。
 
 如果实践这些方法，暗示性会大大提高，更容易进入催眠状态。
 
@@ -30,7 +30,7 @@
 
 ……这里的“脑内高潮”指的是“大脑快感神经的成长程度”和“当天的性感度”共同作用下产生的“干性高潮”。
 
-（如果不知道什么是干性高潮，请参考“**[关于干性高潮的说明](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-24)**”！）
+（如果不知道什么是干性高潮，请参考“**[关于干性高潮的说明](/dryorg/intro/page-24.md)**”！）
 
 关于大脑快感神经的发育程度……“进行过多少次**令人愉悦**的性行为或自慰”是关键。
 
@@ -87,19 +87,19 @@
 
 （积极进行冥想可以提高被暗示性，更容易进入恍惚状态）
 
-（也请参考“**[冥想自慰的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-92)**”）
+（也请参考“**[冥想自慰方法总结](/dryorg/yarikata/page-92.md)**”）
 
 ### **干性高潮的训练**
 
 进行此项训练可以大大增强催眠音声中色情部分产生的快感。
 
-首先，阅读“**[关于干性高潮的技巧和知识](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-55)**”，充分理解干性高潮，然后通过“**[干性高潮的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-list-dry)**”积极进行干性自慰。
+首先，阅读“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)**”，充分理解干性高潮，然后通过“**[干性高潮的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-list-dry)**”积极进行干性自慰。
 
 特别推荐的是：
 
-“**[能量高潮的方法](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-15)**”
+“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”
 
-“**[乳首自慰的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-26)**”
+“**[乳首自慰方法总结](/dryorg/yarikata/page-26.md)**”
 
 如果可以轻轻拨弄肛门，也可以加上“**[棉棒自慰（棉棒肛门自慰）的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-63)**”。
 
@@ -133,7 +133,7 @@
 
 ……这与“能够有意识地感知身体的各个部位”这一项的内容相似，但在色情部分，通常会指示“身体的性感带”。
 
-“**[通过引导意识到下腹部来达到干性高潮的方法](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-25)**”
+“**[通过意识引导下腹部实现干性高潮的方法总结](/dryorg/yarikata/page-25.md)**”
 
 通过阅读这篇文章，加深对体内性感的认知，当被指示身体的性感带时，就能更强烈地产生快感。
 
@@ -149,13 +149,13 @@
 
 ### **进行妄想自慰**
 
-请参考“**[妄想自慰的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-28)**”！
+请参考“**[意淫自慰方法总结](/dryorg/yarikata/page-28.md)**”！
 
 如果能将想象和快感联系起来，就能变得更快乐。
 
 ## 增强当天性感的方法
 
-建议阅读“**[增强性感的方法总结](https://web.archive.org/web/20190905084315/http://adlib1.net/ws2/h-life/page-19)**”。
+建议阅读“**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”。
 
 本文介绍了“大脑快感神经的成长”和“对色情催眠的适应性”，但为了通过催眠自慰获得强烈的快感，“当天的性感度”也**非常重要**。
 

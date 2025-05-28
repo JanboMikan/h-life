@@ -57,6 +57,7 @@ export const mainNav = [
   { text: "乳首", link: "/nipple/intro/page-90.md" },
   { text: "雌潮", link: "/femorg/intro/page-a4-1.md" },
   { text: "干潮", link: "/dryorg/intro/page-24.md" },
+  { text: "催眠", link: "/hypnosis/page-116.md" },
   {
     text: "13周乳高日志",
     link: "/n6551fs/intro.md",
@@ -76,7 +77,6 @@ export const defaultSidebar = [
     text: "「自慰分析家」站点",
     link: "/onanie-a/intro.md",
   },
-  { text: "催眠（计划中）" },
   { text: "前列腺（计划中）" },
   { text: "湿潮技巧（计划中）" },
 ];
@@ -86,6 +86,7 @@ export let sidebar = {
   "/nipple/": sections.find((x) => x.text === "乳首"),
   "/femorg/": sections.find((x) => x.text === "雌性高潮"),
   "/dryorg/": sections.find((x) => x.text === "干性高潮"),
+  "/hypnosis/": sections.find((x) => x.text === "催眠"),
   "/n6551fs/": sections.find(
     (x) => x.text === "纯手工开发13周达到深度乳首高潮的开发记录"
   ),

@@ -8,7 +8,7 @@
 
 ・[【无需成人用品！】在推特上进行性幻想比自慰更舒服？](/onanie-a/twitter001.md)
 
-![](https://www.onanie-analyzer.com/stock/image.png)
+
 
 关于术语，请参考这里。
 

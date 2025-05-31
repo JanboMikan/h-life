@@ -6,7 +6,7 @@
 
 *   [精液混血！？血精液症的原因・对策总结](/onanie-a/broad01.md)
 
-    ![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/peni-cry_828.png)
+    
 
 但是上次，管理员本人也是在出现血精液症症状后不久写的，还记得当时还不清楚“什么才是真正有效的”。
 
@@ -50,7 +50,7 @@
 
 因为管理员的体质是秋天性欲会变得旺盛（苦笑），所以那年也随着秋天的深入，自慰的次数也日益增多。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/master-man-fin_828.png)
+
 
 在那之中，有一天性欲非常旺盛，那天竟然自慰了6次（我觉得自己真是太鲁莽了）……正是在那天的“第6次自慰”时，出现了血精液症的症状。
 
@@ -128,7 +128,7 @@
 
 最重要的是，即使无法达到高潮，如果忍住（在射精前停止自慰），会对前列腺和尿道造成很大的负担，反而会增加患血精液症・前列腺炎・尿道炎・射精障碍等的概率。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/peni-boo_828.png)
+
 
 那么，什么样的自慰方式，既能舒服地达到高潮，又能降低患血精液症的概率呢？接下来将进行验证。
 

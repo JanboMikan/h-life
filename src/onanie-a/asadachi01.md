@@ -4,7 +4,7 @@
 
 在晨勃状态下，使用相性好的飞机杯等，尽情射精！
 
-![](https://www.onanie-analyzer.com/stock/master-man-fin_828.png)
+
 
 ──这是极致的自慰体验。
 

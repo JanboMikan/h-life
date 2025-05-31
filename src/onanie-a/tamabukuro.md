@@ -4,7 +4,7 @@
 
 顾名思义，这是一种通过刺激玉袋（阴囊），最终达到射精的特殊自慰方式。
 
-![](https://www.onanie-analyzer.com/stock/open-rabbit_828.png)
+
 
 这次，我们将深入探讨这种玉袋自慰！
 

@@ -5,7 +5,7 @@
 *   [男性达到干性高潮的方法・技巧总结](/onanie-a/dry-orgasm001.md)
 *   [乳首自慰无法达到干性高潮的解决方案总结](/onanie-a/chikubi004.md)
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 总而言之，男性要达到干性高潮，大致有以下四种手段。
 

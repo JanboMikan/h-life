@@ -2,7 +2,7 @@
 
 “乳首自慰是特别为乳首敏感的人（或者只有女性）准备的”
 
-![](https://www.onanie-analyzer.com/stock/tebra-fatw_828.png)
+
 
 …我想很多人都是这么认为的。
 

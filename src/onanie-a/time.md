@@ -7,7 +7,7 @@
 *   是否有属于自己的空间
 *   在属于自己的空间里自由支配的时间
 
-![](https://www.onanie-analyzer.com/stock/toilet-ona_m_828.png)
+
 
 拥有多少这样的时间上和空间上的“私人空间”，应该会对自慰机会的多少产生很大影响。
 
@@ -49,7 +49,7 @@
 
 毕竟，男性有[如何在晨勃状态下获得舒适的自慰，方法总结](/onanie-a/asadachi01.md)这种现象…
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 睡眠使大脑处于“思考活动不在状态”的状态，这会增加色情思考介入的余地。
 
@@ -178,7 +178,7 @@
 
 因此，会更大程度地受到“迟钝”、“疲倦”、“无精打采”等自慰的负面影响。
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 如果性欲妨碍工作，请务必参考以下文章。
 

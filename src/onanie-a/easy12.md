@@ -4,7 +4,7 @@
 
 因此，这次我想在“易于实践”的条件下撰写一篇类似主题的文章。
 
-![](https://www.onanie-analyzer.com/stock/monkey_mastur_828.png)
+
 
 与上次一样，等级越低，“方法越简单”且“快感越微妙”，等级越高，“方法稍微麻烦”且“快感越大”。
 
@@ -16,7 +16,7 @@
 
 也就是说，用手抓住包括包皮在内的阴茎，前后移动包皮进行刺激的方法。
 
-![](https://www.onanie-analyzer.com/stock/master-man_828.png)
+
 
 总之，其魅力在于它的便捷性。
 
@@ -62,7 +62,7 @@
 
 之所以必须这样做，是因为精液是会飞溅的。
 
-![](https://www.onanie-analyzer.com/stock/master-man-fin_828.png)
+
 
 虽然也可以预先在可能飞溅精液的地方铺上报纸等进行防护…
 
@@ -378,7 +378,7 @@
 
 那就是使用飞机杯的自慰。
 
-![](https://www.onanie-analyzer.com/stock/ona-hole_828.png)
+
 
 飞机杯的情况下，可以说一切都取决于“相性好不好”，而不是“高级还是廉价”。
 

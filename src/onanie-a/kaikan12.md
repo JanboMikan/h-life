@@ -2,7 +2,7 @@
 
 这里将按难易度顺序介绍12种相对容易实现的自慰方式！
 
-![](https://www.onanie-analyzer.com/stock/master-man_828.png)
+
 
 本文的结构是“随着等级的提高，难度会逐渐增加，但快感也会随之增加”。
 
@@ -20,7 +20,7 @@
 
 另一种是剥开包皮，直接用手刺激龟头。
 
-![](https://www.onanie-analyzer.com/stock/monkey_mastur_828.png)
+
 
 前者最大的优点是简单。
 

@@ -9,7 +9,7 @@
 *   [使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.md)
 *   [乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.md)
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 与只是进行性幻想就能轻松达到高潮的阴茎自慰不同，乳首自慰的难度较高。
 

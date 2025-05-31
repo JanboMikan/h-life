@@ -4,7 +4,7 @@
 
 以前深夜的电视节目（好像是叫《Wonderful》）里说过，自慰的快感指数比饮酒和吸烟都要强。
 
-![](https://www.onanie-analyzer.com/stock/carrot-rabbit_828.png)
+
 
 但是，在自慰中最容易实现的“手冲自慰”，为了缓解压力而反复进行，是好事还是坏事呢……
 
@@ -24,7 +24,7 @@
 
 之后，只会感到身心疲惫，不仅是贤者模式，还会迟钝生活中的思考。
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 但是，只要稍微下点功夫，手冲自慰就会变得格外舒服哦！
 

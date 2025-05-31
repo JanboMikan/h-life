@@ -6,7 +6,7 @@
 
 但是，可能有人为这短短的3天或1周的禁欲而苦恼，我也是其中之一。
 
-![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)
+
 
 果然，每天都成为习惯的话，稍微有点空闲就会忍不住自慰。
 
@@ -78,7 +78,7 @@
 
 就会立刻想自慰。
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 因此，利用兴趣爱好（欣赏事物）来禁欲可能不是一个有效的方法。
 

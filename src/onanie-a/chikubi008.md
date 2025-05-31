@@ -7,7 +7,7 @@
 *   [乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.md)
 *   [乳首自慰无法达到干性高潮的解决方案总结](/onanie-a/chikubi004.md)
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 读过以上文章后就会明白，不得不说乳首自慰的成功率很低。
 

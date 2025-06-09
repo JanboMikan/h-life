@@ -7,3 +7,5 @@
 除了H-Life，本站也会不定期、不定内容地加入一些别处的关于爱爱的翻译文章，请在侧边栏的分类处点击查看。
 
 译者：[ジャンボ蜜柑](https://bbs.viva-la-vita.org/u/JanboMikan)（[TG联系我](https://t.me/shabushabu_bot)）
+
+本站所有文字以[CC BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/)授权。

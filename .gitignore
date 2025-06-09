@@ -5,3 +5,5 @@ node_modules
 .vitepress/dist
 .vitepress/cache
 package-lock.json
+merge_md_files.py
+merged_markdown_files.md

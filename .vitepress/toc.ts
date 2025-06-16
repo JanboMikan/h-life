@@ -66,6 +66,10 @@ export const mainNav = [
     text: "自慰分析家",
     link: "/onanie-a/intro.md",
   },
+  {
+    text: "乳首雌潮(另)",
+    link: "/ay200/intro.md",
+  },
 ];
 export const defaultSidebar = [
   { text: "介绍", link: "/" },
@@ -82,6 +86,10 @@ export const defaultSidebar = [
     text: "「自慰分析家」站点",
     link: "/onanie-a/intro.md",
   },
+  {
+    text: "幸福到爆炸的「乳首雌性高潮」教程",
+    link: "/ay200/intro.md",
+  },
   { text: "前列腺（计划中）" },
   { text: "湿潮技巧（计划中）" },
 ];
@@ -96,4 +104,7 @@ export let sidebar = {
     (x) => x.text === "纯手工开发13周达到深度乳首高潮的开发记录"
   ),
   "/onanie-a/": sections.find((x) => x.text === "「自慰分析家」站点"),
+  "/ay200/": sections.find(
+    (x) => x.text === "幸福到爆炸的「乳首雌性高潮」教程"
+  ),
 };

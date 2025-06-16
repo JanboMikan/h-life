@@ -4,6 +4,8 @@
 
 资源来自：<https://bbs.viva-la-vita.org/d/2446>
 
+感谢生如夏花用户[@Dot](https://bbs.viva-la-vita.org/u/Pre)、[@lice](https://bbs.viva-la-vita.org/u/aklice)。
+
 以下是原作介绍：
 
 ---

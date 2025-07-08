@@ -4,7 +4,7 @@
 
 当然，无论多么简单的方法，只要与自身相性良好，就能获得相当强烈的快感。
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 但是，遇到相性良好的方法的概率，绝对不能算高。
 

@@ -4,7 +4,7 @@
 
 ・[开始乳首自慰（乳首自慰）的准备和心态](/onanie-a/chikubi001.md)
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 此外，如果想快速且可靠地了解乳首开发的方法，请自行承担风险参考以下文章～
 

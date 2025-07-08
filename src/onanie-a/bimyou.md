@@ -4,7 +4,7 @@
 
 ──因为你有“自己在冲”的意识。
 
-![](https://www.onanie-analyzer.com/stock/peni-boo_828.png)
+
 
 只要你有自己在动手的意识，
 
@@ -20,7 +20,7 @@
 
 “现在我正在被其他人的（特别是女性的）动作刺激着……”
 
-![](https://www.onanie-analyzer.com/stock/tekoki_wxm_828.png)
+
 
 如果大脑能这样认为就好了，但是能这样操控大脑的人并不多！
 

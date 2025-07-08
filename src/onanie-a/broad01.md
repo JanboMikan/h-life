@@ -6,7 +6,7 @@
 
 ……等等，威胁幸福自慰生活的现象并不少见。
 
-![](https://www.onanie-analyzer.com/stock/peni-boo_828.png)
+
 
 特别是，性器官周围的不适，往往会导致害怕自慰的情况。
 
@@ -138,7 +138,7 @@
 
 特别是自行车和摩托车的车座，与会阴部紧密贴合，因此危险性更高。
 
-![](https://www.onanie-analyzer.com/stock/image.png)
+
 
 尽量避免一直坐着或骑着，但是对于从事文案工作的人，或者使用摩托车工作的人来说，很难如愿。
 
@@ -218,7 +218,7 @@
 
 ●发烧
 
-![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)
+
 
 如果出现这些症状，则“必须”“立即”接受医生的诊察。
 

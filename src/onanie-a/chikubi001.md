@@ -6,7 +6,7 @@
 
 ──因为快感太短暂，很快就会恢复到欲求不满的状态。
 
-![](https://www.onanie-analyzer.com/stock/peni-boo_828.png)
+
 
 为什么手撸自慰只能获得一瞬间的快感呢？
 
@@ -54,7 +54,7 @@
 
 但这仅仅是因为乳首等部位是否被开发过的区别而已。
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 只要想，谁都可以开发乳首。
 

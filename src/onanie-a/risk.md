@@ -4,7 +4,7 @@
 
 因此，如果用错误的方法自慰，可能会对身心造成意想不到的障碍。
 
-![](https://www.onanie-analyzer.com/stock/peni-boo_828.png)
+
 
 关于长期过度自慰所引发的种种可怕现象，我们将在以后的机会再进行讨论──
 
@@ -52,7 +52,7 @@
 
 首先，柠檬酸不足容易导致倦怠。
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 过度自慰会导致身心模糊不清，这也有这方面的影响吧。
 

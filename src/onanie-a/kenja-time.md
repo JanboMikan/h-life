@@ -86,7 +86,7 @@
 
 …这些都不是自己创造了什么，也不能说是为了自己的身心和人生的努力，所以无法恢复身心。
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 “电视”和“音乐”自不必说。
 

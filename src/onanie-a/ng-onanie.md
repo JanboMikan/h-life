@@ -3,7 +3,7 @@
 ## 意外地常见的自慰陷阱
 我已经多次说过，普通的[【无需成人用品】手冲（手淫）自慰的舒服方法【无需道具！】](/onanie-a/zoufuku001.md)，通过一些技巧，可以变成非常愉悦的行为。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/carrot-rabbit_828.png)
+
 
 但同时，如果只是普通地做，也可能变得完全不舒服。因此，本文将列举一些会让自慰变得不舒服的“做法”。
 只要避免我接下来介绍的方法，应该就能避免不舒服的自慰了。
@@ -26,7 +26,7 @@
 如果想获得愉悦的自慰体验，不要对前列腺用力，始终只关注龟头。
 具体来说，就是“想象龟头很舒服”。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 例如，想象龟头被舌头舔舐，或者前端插入女性的性器官等等。
 关于想象舔舐龟头的自慰的优点，我在以下文章中也有提到。
@@ -52,7 +52,7 @@
 ※这里称之为“积累性欲时间”。
 沉迷于阅读色情书籍，或者在安全的范围内浏览网络上的色情内容，都是有效的方法。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/ero-dojin_828.png)
+
 
 这样做，身心整体都会进入色情模式，这会成为愉悦自慰的基础。
 说到安全，仅仅是浏览或购买dlsite或DMM等销售网站内的R18内容，也相当有效哦！
@@ -94,7 +94,7 @@
 当我知道这个事实时，突然意识到了一件事。
 那就是，使用飞机杯自慰，其实相当困难。
 
-![](https://sp-ao.shortpixel.ai/client/to_auto,q_glossy,ret_img,w_331,h_331/https://www.onanie-analyzer.com/stock/ona-hole_828.png)
+
 
 因为飞机杯需要清洗、涂抹润滑液、加热等准备工作。
 我刚开始使用飞机杯时，觉得飞机杯完全不舒服，正是因为在准备飞机杯的过程中，性紧张感减退了。

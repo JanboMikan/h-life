@@ -2,7 +2,7 @@
 
 本网站至今为止，已经讨论过各种乳首开发的方法。
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 [任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.md)
 

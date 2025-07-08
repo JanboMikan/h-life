@@ -2,7 +2,7 @@
 
 本网站此前曾多次提到，手淫带来的快感很微妙。
 
-![](https://www.onanie-analyzer.com/stock/toilet-ona_m_828.png)
+
 
 但是，即使是微妙的手淫，也可以通过一些技巧来增强快感。
 

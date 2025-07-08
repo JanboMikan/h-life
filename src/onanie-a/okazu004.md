@@ -8,7 +8,7 @@
 
 截至2023年7月，[这里](https://www.nikkei.com/article/DGXMZO60023880V00C20A6CR8000/)有更易懂的总结，但来源可能已被删除。
 
-![](https://www.onanie-analyzer.com/stock/manga.png)
+
 
 因此，本文将讨论以下内容：
 

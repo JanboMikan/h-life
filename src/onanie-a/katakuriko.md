@@ -4,7 +4,7 @@
 
 明明喜欢自慰，却没有购买、拥有倒模和润滑液的环境…
 
-![](https://www.onanie-analyzer.com/stock/ona-hole_828.png)
+
 
 我想很多人都有这样的烦恼。
 

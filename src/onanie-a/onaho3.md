@@ -2,7 +2,7 @@
 
 厌倦了手冲自慰的微妙感，终于买到了心仪的飞机杯！
 
-![](https://www.onanie-analyzer.com/stock/ona-hole_828.png)
+
 
 满怀期待地尝试飞机杯自慰！
 

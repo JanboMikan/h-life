@@ -2,7 +2,7 @@
 
 只要不是一个人生活，就总是伴随着被家人看到自慰用品、自慰痕迹，甚至是自慰本身这种风险。
 
-![](https://www.onanie-analyzer.com/stock/ona-hole_828.png)
+
 
 在这里，我想写一下为了不让家人看到用品和痕迹的对策，以及万一被看到了该如何应对。
 
@@ -46,7 +46,7 @@
 
 擦拭精液的纸巾，会散发出独特的气味。
 
-![](https://www.onanie-analyzer.com/stock/sico-tissue_828.png)
+
 
 不要直接扔进垃圾桶，需要想点办法。
 

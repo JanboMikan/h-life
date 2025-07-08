@@ -4,7 +4,7 @@
 
     在这篇文章中，我得出的结论是，如果自慰感觉不舒服，原因在于有“自己在自慰”的意识。
 
-    ![](https://www.onanie-analyzer.com/stock/toilet-ona_m_828.png)
+    
 
     人类的神经真是不可思议。
 

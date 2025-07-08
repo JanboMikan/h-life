@@ -8,7 +8,7 @@
 
 ・[乳首开发有效想象方法总结](/onanie-a/chikubi011.md)
 
-![](https://www.onanie-analyzer.com/stock/nyutou.png)
+
 
 这次，我想介绍一下管理员在深入研究乳首自慰的过程中发现的各种新的奥秘。
 
@@ -38,7 +38,7 @@
 
 与其说是「玩弄」，不如说是「爱抚」，这样的触摸方式会更有效。
 
-![](https://www.onanie-analyzer.com/stock/women-couple_828.png)
+
 
 像这样，想象自己变成女性，被温柔的女性爱抚胸部，效果会更好。
 
@@ -96,7 +96,7 @@
 
 这时，如果妄想自己的胸部带有女性的隆起，效果会更好！
 
-![](https://www.onanie-analyzer.com/stock/tebra-fatw_828.png)
+
 
 乳首开发一旦开始成功，就会觉得乳首真的变得可爱，不可思议。
 
@@ -146,7 +146,7 @@
 
 但是，恋爱的时候或者做性梦的时候，不都是昏昏沉沉的吗？
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 乳首自慰是精神上的，容易产生内在的憧憬和爱恋的「发呆状态」才是乳首自慰的理想状态，不是吗？
 

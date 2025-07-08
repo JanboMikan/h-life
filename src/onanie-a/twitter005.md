@@ -50,7 +50,7 @@
 
 与只谈论兴趣或工作的账号不同，一旦涉及到性，人际关系就会变得复杂……
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 总之，识别与自己合得来的人的能力！这一点非常重要。
 
@@ -94,7 +94,7 @@
 
 还会产生一种“想进行这样的对话”的期待。
 
-![](https://www.onanie-analyzer.com/stock/carrot-rabbit_828.png)
+
 
 而且，这种期待比获得新的AV更高，而且不需要花费劳力和金钱，因此作为一种轻松的压力释放方式，非常实用。
 

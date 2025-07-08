@@ -58,7 +58,7 @@
 
 ・[龟头责め自慰的方法总结](/onanie-a/kitou001.md)
 
-![](https://www.onanie-analyzer.com/stock/peni-love_828.png)
+
 
 但是，这种龟头前端刺激自慰，首先需要保护尿道的安全套，而且成功的概率也不能说很高。
 

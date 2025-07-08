@@ -4,7 +4,7 @@
 
 而且，我们生活在一个经常感受到压力的社会。
 
-![](https://www.onanie-analyzer.com/stock/zombie-oj_828.png)
+
 
 因此，我们往往会利用自慰来缓解压力。
 
@@ -86,7 +86,7 @@
 
 就可以给自己一种“安慰奖”的感觉。
 
-![](https://www.onanie-analyzer.com/stock/fukidashi_lovely_828_2.png)
+
 
 结果，即使事态恶化，
 

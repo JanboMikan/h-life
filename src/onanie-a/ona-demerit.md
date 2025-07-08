@@ -4,7 +4,7 @@
 
 虽然自慰本身不会直接损害健康，但过度自慰会逐渐产生各种各样的缺点…！？
 
-![](https://www.onanie-analyzer.com/stock/peni-cry_828.png)
+
 
 这次，我们将重点关注自慰可能引起的、身边常见的问题。
 
@@ -62,7 +62,7 @@
 
 毕竟，射精是释放营养、消耗体力的行为。
 
-![](https://www.onanie-analyzer.com/stock/zombie-oj_828.png)
+
 
 身体疲倦会影响工作，思考迟钝会导致难以对事物做出适当的判断。
 

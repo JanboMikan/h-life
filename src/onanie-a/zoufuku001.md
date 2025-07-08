@@ -8,7 +8,7 @@
 
 ※在本网站中，主要将其称为“阴茎自慰”。
 
-![](https://www.onanie-analyzer.com/stock/master-man_828.png)
+
 
 很多人都有自慰的习惯，他们通常都是通过手淫来进行阴茎自慰。
 

@@ -6,7 +6,7 @@
 *   [推特角色扮演性爱（イメプ）术语词典](/onanie-a/twitter002.md)
 *   [推特性幻想扮演的开始方法、注意事项总结](/onanie-a/twitter003.md)
 
-![](https://www.onanie-analyzer.com/stock/image.png)
+
 
 如果在文章中遇到不明白的词语，请务必阅读上面的“术语词典”。
 
@@ -88,7 +88,7 @@
 
 相反，不太适应社会和网络，经常感到困惑和烦恼的人，我建议采取“谨慎型”的方式。
 
-![](https://www.onanie-analyzer.com/stock/peni-funya_828.png)
+
 
 顺便说一下，我也是这种类型的人。
 

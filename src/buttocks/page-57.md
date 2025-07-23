@@ -30,7 +30,7 @@
 
 注入除热水（水）和润滑剂以外的可吸收物质，可能会导致致命问题。
 
-详情请参考“**[关于使用灌肠器进行直肠清洗的必要知识](https://web.archive.org/web/20190910104424/http://adlib1.net/ws2/h-life/page-45)**”。
+详情请参考“**[关于使用灌肠器进行直肠清洗的必要知识](/buttocks/page-45.md)**”。
 
 ……总之，可以注入的只有“热水（水）”、“润滑剂”、“排便剂（如无花果）”！记住热水注入量最多800ml（通常为100ml），应该就没问题。
 
@@ -140,4 +140,4 @@
 
 如果看完上述内容后感到不安，那就停止肛门自慰（前列腺按摩）吧。
 
-即使是风险较低的干性高潮（“**[乳首自慰](https://web.archive.org/web/20190910104424/http://adlib1.net/ws2/h-life/page-list-nipple)** ”或“**[催眠自慰](https://web.archive.org/web/20190910104424/http://adlib1.net/ws2/h-life/page-16)** ”），也能充分感受到快感。
+即使是风险较低的干性高潮（“**[乳首自慰](https://web.archive.org/web/20190910104424/http://adlib1.net/ws2/h-life/page-list-nipple)** ”或“**[催眠自慰的方法](/hypnosis/page-16.md)** ”），也能充分感受到快感。

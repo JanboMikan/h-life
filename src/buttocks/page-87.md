@@ -54,8 +54,8 @@
 
 关于肛门性行为的必要知识，总结在以下两篇文章中，请务必仔细阅读。
 
-*   “**[关于前列腺开发的风险](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-57)**”
-*   “**[前列腺开发中的注意事项总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-58)**”
+*   “**[前列腺开发风险](/buttocks/page-57.md)**”
+*   “**[前列腺开发注意事项总结](/buttocks/page-58.md)**”
 
 ## 注意事项
 
@@ -75,7 +75,7 @@
 
 *   没有进行肛门开发，就无法顺利进行
 
-如果没有通过“**[前列腺的开发方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-list-buttocks)**”进行充分开发，就无法获得理想的快感。……此外，需要通过“**[肛门扩张方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-68)**”将肛门扩张到一定程度。
+如果没有通过“**[前列腺的开发方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-list-buttocks)**”进行充分开发，就无法获得理想的快感。……此外，需要通过“**[肛门扩张方法总结](/buttocks/page-68.md)**”将肛门扩张到一定程度。
 
 *   会上瘾
 
@@ -99,7 +99,7 @@
 
 ## 风险
 
-与前列腺开发的风险大致相同。请参考“**[关于前列腺开发的风险](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-57)**”中的描述。
+与前列腺开发的风险大致相同。请参考“**[前列腺开发风险](/buttocks/page-57.md)**”中的描述。
 
 此外，过度进行流水射精自慰可能会扰乱前列腺或直肠的状况。……即使再舒服，也不要过度，要保证充分的休息时间。
 
@@ -200,14 +200,14 @@
 如果进行以下操作，可能会更容易流水射精。
 
 *   通过“**[前列腺的开发方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-list-buttocks)**”彻底开发屁股内部
-*   多次进行“**[前列腺按摩](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-59)**”
-*   进行“**[肛门扩张](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-68)**”。（使其能够接受像NEXUS（ネクサス）レボ系列这样粗大的东西）
-*   通过“**[能量高潮](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-15)**”等锻炼PC肌
-*   通过“**[通过意识引导下腹部实现干性高潮的方法](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-25)**”等，使自己能够将意识集中在下腹部。（准确来说，是能够创造射精的意识）
-*   通过“**[妄想自慰](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-28)**”使前列腺感到舒适（反复进行射精的形象训练）
-*   理解“**[强化性感的方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-19)**”
-*   掌握“**[关于干性高潮的技巧和知识](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-55)**”
-*   了解“**[关于性感带的说明](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-74)**”
+*   多次进行“**[前列腺按摩方法总结](/buttocks/page-59.md)**”
+*   进行“**[肛门扩张方法总结](/buttocks/page-68.md)**”。（使其能够接受像NEXUS（ネクサス）レボ系列这样粗大的东西）
+*   通过“**[能量高潮的技巧](/dryorg/yarikata/page-15.md)**”等锻炼PC肌
+*   通过“**[通过意识引导下腹部实现干性高潮的方法总结](/dryorg/yarikata/page-25.md)**”等，使自己能够将意识集中在下腹部。（准确来说，是能够创造射精的意识）
+*   通过“**[意淫自慰方法总结](/dryorg/yarikata/page-28.md)**”使前列腺感到舒适（反复进行射精的形象训练）
+*   理解“**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**”
+*   掌握“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.md)**”
+*   了解“**[关于性感带的说明](/dryorg/seikantai/page-74.md)**”
 
 此外，不习惯时，在刺激精囊的同时，也一起摩擦阴茎。
 
@@ -215,7 +215,7 @@
 
 ## 需要准备的东西和环境
 
-与“**[前列腺按摩的步骤说明](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-60)**”中进行的内容相同。
+与“**[前列腺按摩步骤说明](/buttocks/page-60.md)**”中进行的内容相同。
 
 此外，补充关于假阳具的信息。
 
@@ -245,7 +245,7 @@
 
 ## 获得快感流水射精的方法
 
-基本与前列腺按摩几乎相同，因此请参考“**[前列腺按摩的方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-59)**”。
+基本与前列腺按摩几乎相同，因此请参考“**[前列腺按摩方法总结](/buttocks/page-59.md)**”。
 
 下面简单介绍一下假阳具的使用方法。
 
@@ -313,7 +313,7 @@
 
 在上述“关于性感度”中描述。
 
-……顺便说一句，如果在“**[催眠自慰](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-16)**”中进行这方面的特训，快感会进一步增强。
+……顺便说一句，如果在“**[催眠自慰的方法](/hypnosis/page-16.md)**”中进行这方面的特训，快感会进一步增强。
 
 ## 优点
 
@@ -365,7 +365,7 @@
 
 *   有些人明明想追求干性高潮，却变成了流水射精
 
-如果有人认为这是一个问题，那么“**[分离乳头性感和射精感的方法总结](https://web.archive.org/web/20190909080636/http://adlib1.net/ws2/h-life/page-42)**”之类的文章可能会在一定程度上有所帮助。
+如果有人认为这是一个问题，那么“**[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.md)**”之类的文章可能会在一定程度上有所帮助。
 
 *   流水射精在英语中被称为“Prostate Milking”
 

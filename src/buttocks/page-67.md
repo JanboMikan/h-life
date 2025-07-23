@@ -24,9 +24,9 @@
 
 关于肛门的相关必要知识，已总结在以下两篇文章中，请务必认真阅读。
 
-・「**[前列腺开发的风险](https://web.archive.org/web/20190910111428/http://adlib1.net/ws2/h-life/page-57)**」
+・「**[前列腺开发风险](/buttocks/page-57.md)**」
 
-・「**[前列腺开发注意事项总结](https://web.archive.org/web/20190910111428/http://adlib1.net/ws2/h-life/page-58)**」
+・「**[前列腺开发注意事项总结](/buttocks/page-58.md)**」
 
 ## 注意事项
 
@@ -58,7 +58,7 @@
 
 ## 关于风险
 
-与通常的肛门风险（「**[前列腺开发的风险](https://web.archive.org/web/20190910111428/http://adlib1.net/ws2/h-life/page-57)**」）相同。
+与通常的肛门风险（「**[前列腺开发风险](/buttocks/page-57.md)**」）相同。
 
 ## 关于性感度
 
@@ -96,7 +96,7 @@
 
 ## 使用手指进行前列腺按摩的方法
 
-※ 关于肛门性行为（前列腺自慰等）的一系列步骤，请参考「**[前列腺按摩步骤说明](https://web.archive.org/web/20190910111428/http://adlib1.net/ws2/h-life/page-60)**」。
+※ 关于肛门性行为（前列腺自慰等）的一系列步骤，请参考「**[前列腺按摩步骤说明](/buttocks/page-60.md)**」。
 
 首先，决定是在浴室进行，还是在床上（被褥上）进行。
 
@@ -164,7 +164,7 @@
 
 ## 进一步提高快感的方法
 
-・导入「**[强化性感的方法总结](https://web.archive.org/web/20190910111428/http://adlib1.net/ws2/h-life/page-19)**」
+・导入「**[强化性感的方法总结](/nipple/jyouhou/page-19.md)**」
 
 ・让别人来做
 

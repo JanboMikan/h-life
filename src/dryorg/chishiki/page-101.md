@@ -179,9 +179,9 @@
 
 “ **[内裤自慰的方法](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-33)** ”
 
-“ **[棉棒自慰（棉棒肛门自慰）的方法总结](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-63)** ”
+“ **[棉棒自慰（棉棒肛门自慰）方法总结](/buttocks/page-63.md)** ”
 
-“ **[前列腺按摩的方法总结](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-59)** ”
+“ **[前列腺按摩方法总结](/buttocks/page-59.md)** ”
 
 同时刺激乳首和其他部位，身体对快感的感觉会发生变化。
 

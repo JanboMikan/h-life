@@ -40,9 +40,9 @@
 
 关于肛门的必要知识，总结在以下2篇文章中，请务必仔细阅读。
 
-「[关于前列腺开发的风险](https://web.archive.org/web/20190910110957/http://adlib1.net/ws2/h-life/page-57)」
+「[前列腺开发风险](/buttocks/page-57.md)」
 
-「[前列腺开发注意事项总结](https://web.archive.org/web/20190910110957/http://adlib1.net/ws2/h-life/page-58)」
+「[前列腺开发注意事项总结](/buttocks/page-58.md)」
 
 ## 注意事项
 
@@ -78,13 +78,13 @@
 
 用麦哲伦进行肛门性虐时，可以获得与肛门珠自慰相同的快感。
 
-详情请参考「[肛门珠自慰方法总结](https://web.archive.org/web/20190910110957/http://adlib1.net/ws2/h-life/page-64)」。
+详情请参考「[关于使用肛珠进行自慰的方法总结](/buttocks/page-64.md)」。
 
 ……连续拔出球时的快感，非常强烈。全身都会抽搐。
 
 ## 需要准备的东西和环境
 
-※ 肛门性爱（前列腺自慰等）的一系列步骤，请参考「[前列腺按摩步骤说明](https://web.archive.org/web/20190910110957/http://adlib1.net/ws2/h-life/page-60)」。
+※ 肛门性爱（前列腺自慰等）的一系列步骤，请参考「[前列腺按摩步骤说明](/buttocks/page-60.md)」。
 
 ## 使用时的技巧
 

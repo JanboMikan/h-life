@@ -7,3 +7,4 @@ node_modules
 package-lock.json
 merge_md_files.py
 merged_markdown_files.md
+.DS_Store

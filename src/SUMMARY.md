@@ -186,7 +186,37 @@
 - [译者补充]()
   - [能下到学习资料的地方](hypnosis/supplement.md)
 
-# 前列腺（计划中）
+# 前列腺
+
+- [前言]()
+  - [前列腺开发](buttocks/page-62.md)
+- [肛交自慰总结文章]()
+  - [肛门自慰（肛门自慰）方法总结](buttocks/page-93.md)
+- [肛门开发必备知识]()
+  - [前列腺开发风险](buttocks/page-57.md)
+  - [前列腺开发注意事项总结](buttocks/page-58.md)
+- [直肠清洗说明]()
+  - [关于使用灌肠器进行直肠清洗的必要知识](buttocks/page-45.md)
+- [关于前列腺开发]()
+  - [高效开发肛门性感的方法总结](buttocks/page-66.md)
+- [使用灌肠器进行前列腺按摩的流程]()
+  - [前列腺按摩步骤说明](buttocks/page-60.md)
+- [关于前列腺自慰]()
+  - [前列腺按摩方法总结](buttocks/page-59.md)
+  - [用手指按摩前列腺的方法](buttocks/page-67.md)
+  - [肛门自慰中获得快感如流水般射精的方法总结](buttocks/page-87.md)
+- [关于肛门系干式自慰]()
+  - [棉棒自慰（棉棒肛门自慰）方法总结](buttocks/page-63.md)
+  - [关于使用肛珠进行自慰的方法总结](buttocks/page-64.md)
+  - [乙状结肠自慰方法总结](buttocks/page-65.md)
+- [关于扩张玩法]()
+  - [肛门扩张方法总结](buttocks/page-68.md)
+  - [关于肛门塞的使用方法](buttocks/page-130.md)
+- [肛门刺激用品评测]()
+  - [肛门性虐玩具「麦哲伦」的评价](buttocks/page-a2.md)
+  - [NEXUS REVO 系列的评价](buttocks/page-a3.md)
+- [关于肛门问题]()
+  - [【屁股出血】肛交出血时的处理方法](buttocks/page-139.md)
 
 # 湿潮技巧（计划中）
 

@@ -36,7 +36,7 @@
 
 ## 吸引器具系列 评价：○
 
-プチパッド、ペピトップ等。成人用品的乳首折磨中，也有「[乳首泵](https://web.archive.org/web/20190909084024/https://www.e-nls.com/access.php?agency_id=af339507&pcode=2705)」「[乳头吸引器](https://web.archive.org/web/20190909084024/https://www.e-nls.com/access.php?agency_id=af339507&pcode=5332)」等。
+プチパッド、ペピトップ等。成人用品的乳首折磨中，也有「[乳首泵](https://www.e-nls.com/access.php?agency_id=af339507&pcode=2705)」「[乳头吸引器](https://www.e-nls.com/access.php?agency_id=af339507&pcode=5332)」等。
 
 吸引类的商品，可以彻底培育乳首深处的神经。
 

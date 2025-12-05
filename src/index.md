@@ -9,3 +9,5 @@
 译者：[ジャンボ蜜柑](https://bbs.viva-la-vita.org/u/JanboMikan)（[TG联系我](https://t.me/shabushabu_bot)）
 
 本站所有文字以[CC BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/)授权。
+
+[GitHub](https://github.com/JanboMikan/h-life)

@@ -76,8 +76,8 @@ export const defaultSidebar = [
   { text: "介绍", link: "/" },
   { text: "目录", link: "/SUMMARY.md" },
   { text: "乳首", link: "/nipple/intro/page-90.md" },
-  { text: "雌潮", link: "/femorg/intro/page-a4-1.md" },
-  { text: "干潮", link: "/dryorg/intro/page-24.md" },
+  { text: "雌性高潮", link: "/femorg/intro/page-a4-1.md" },
+  { text: "干性高潮", link: "/dryorg/intro/page-24.md" },
   { text: "催眠", link: "/hypnosis/page-116.md" },
   { text: "前列腺", link: "/buttocks/page-62.md" },
   {
